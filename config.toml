@@ -12,6 +12,12 @@ author = "Cheryl Hsu"
 description = "Designing With Dragons"
 profilePicture = "images/shob.jpg"
 
+[[params.socialIcons]]
+icon = "fab fa-twitter"
+title = "Twitter"
+url = "https://twitter.com/cherylshoe"
+
+
 [menu]
 
   [[menu.main]]
