@@ -11,6 +11,7 @@ title = "Cheryl Hsu"
 author = "Cheryl Hsu"
 description = "Designing With Dragons"
 profilePicture = "images/shob.jpg"
+  mainSections = ["post"]
 
 [[params.socialIcons]]
 icon = "fab fa-twitter"
