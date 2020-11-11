@@ -22,7 +22,7 @@ It's looking at systems and the actors within it as a rich ecology of ever-evolv
 
 Several hours later, I joined my kinship group of six people, brought together by chance to explore the strange gravity of Bayo Akomolafe's We Will Dance With Mountains Course (and the way his words come over us like gentle tidal waves). We've only met briefly twice, but there is already such a palpable sense of honest and loving... -- well, *kinship* in the way that we've started sharing with each other. I'm always quietly amazed at when this happens: kinship as a kind of soft magic. 
 
-My fellow kin Barri, who is also a midwife, emanates grounded wisdom and brazen trickster energy. She shared that she describes midwifing as "being very good at doing nothing", which was funny, and then, as: **"having the radical patience to tell when something is stuck, and when it is taking its time."** 
+My fellow kin Barri, who is also a midwife, emanates grounded wisdom and brazen trickster energy. She describes midwifing as "being very good at doing nothing", which is funny, and then, as: **"having the radical patience to tell when something is stuck, and when it is taking its time."** 
 
 > **Having the radical patience to tell when something is stuck, and when it is taking its time."** 
 
