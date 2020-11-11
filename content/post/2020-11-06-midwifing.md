@@ -14,7 +14,7 @@ The High Pitch conversation is a truly an oasis. It's a group of women -- many o
 
 > **"I love to think of leadership these days as midwifing.** When I was pregnant... the women who were gathered for that experience; **there was no leader... but there was a process taking place that everyone was responding to, including the baby and me**. Yet there were different faces and people I would turn to for different needs, and they had their own needs and experience, and it was what Nora always describes so beautifully as **the whole system responding to each other.**" 
 >
-> > \-- Schuyler Brown
+> \-- Schuyler Brown
 
 It's looking at systems and the actors within it as a rich ecology of ever-evolving relationships. It's looking at motherhood as the vital metaphor for **living eco-systemic leadership**: the work of gritting your teeth through the pain of giving birth with gentleness and patience, of living into the role model you want your children to be inspired by (even if it means you have to move away from the comfort of the known), of staying grounded and rooted in the midst of the inevitable chaos of endogenous and exogenous forces of change, of not knowing who your children (or the next generation) will be but learning how to **become-with** them . 
 
