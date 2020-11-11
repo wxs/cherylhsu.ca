@@ -2,7 +2,7 @@
 title: "Midwifing "
 date: 2020-11-06T18:41:31.583Z
 ---
-An expression of my commitment to my "soul's calling" is to try to write in journal every day.
+An expression of my commitment to my *[soul's calling](http://cherylhsu.ca/post/2020-11-06-commitment-to-calling/)* is to try to write in journal every day.
 
 However, I'm noticing the feeling of intimidation around trying to do justice to the pace, depth and breadth to the experiences that I've been exposed to. This is a fear-of-failure loop I'm often caught in, which is why I never put my nascent thoughts out into the wild. Now, I breathe deeply and remind myself that the practice of writing is also about learning how to *surrender*: surrender the instinct to use this journal to *cover* the territory with a map; surrender to the fact that no matter how tightly I grip my fingers together, learning is water passing through my cupped hands. It will flow through me, change me, and leave behind traces. 
 
