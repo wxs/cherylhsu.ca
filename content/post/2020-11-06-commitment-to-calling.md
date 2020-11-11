@@ -4,7 +4,7 @@ date: 2020-11-04T18:27:49.620Z
 ---
 This marks the beginning of my journey to capture reflections on what I’ve been naming my **“self-directed masters”** --  a permission space I’ve gifted myself to devote to unadulterated learning and self-actualization. Perhaps you ask: why do you need permission to learn Cheryl? 
 
-A myriad of reasons. Because I find it so easy to prioritize and rationalize paid “work” over learning. Because I live in a culture where I have to pay for or earn the opportunity to indulge in formalized education, to follow the call of curiosity and resonance. Because permission for me is a consensual agreement I’ve made with myself: it is *actualized* commitment.
+A myriad of reasons. Because I find it so easy to prioritize and rationalize paid “work” over learning. Because I live in a culture where I have to pay for or earn the opportunity to indulge in formalized education, to follow the call of curiosity and resonance. Because permission for me is a consensual agreement I’ve made with myself: it is *actualized* commitment to get to know myself. 
 
 As a self-professed commitment-phobe, I appreciate this conception of unconditional commitment right now: 
 
