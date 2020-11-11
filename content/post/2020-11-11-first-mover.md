@@ -1,5 +1,5 @@
 ---
-title: "First Mover "
+title: Collective Presencing
 date: 2020-11-11T22:38:47.738Z
 ---
 The beating pulse of my last six weeks has been the Embodied Book Club at the Stoa, where a group of us have been reading Ria Baeck's *[Collective Presencing](https://www.collectivepresencing.org/)* book. Since I started my “self-directed masters”, reading and breathing *Collective Presencing* has been the greatest and most surprising gift: there was a **strange synchronicity** to how I was becoming-with it, where the chapters I read would mirror my lived experiences and insights. Reading it has also left me feeling transformed in a way that’s hard to explain: I’m exploring new sensing muscles/organs/capacities that I haven’t encountered before. This is simultaneously a **homecoming** to something I’ve always known, and **leap off an edge** into a vast new potential space that I've never known. 
@@ -44,7 +44,7 @@ When we step in alignment with our soul’s calling, we can act, and create with
 
 
 
-**Breaking through** 
+**Becoming First Mover** 
 
 It no longer feels selfish for me to slow down in these times of urgency (as Bayo Akomolafe would describe: Slowing down is not a function of speed, it’s a function of awareness): to meditate, to move my body, be openly curious without seeking to know, to go to therapy, to be moved by music ([A change is gonna come -- Sam Cooke](https://www.youtube.com/watch?v=fPr3yvkHYsE)), to laugh and cry, journal and draw, dance and make art. Ria read the following quote three times during one of our sessions, and I could read it every day, again and again: 
 
