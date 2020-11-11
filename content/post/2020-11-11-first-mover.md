@@ -38,11 +38,13 @@ When Ria Baeck describes what can be possible when we are in right relationship 
 
 > Mutations have always appeared when the prevailing consciousness structure proved to be no longer adequate for mastering the world. This was the case in the last historically accessible mutation which occurred around 500 BC and led from the mythical to the mental structure. The psychistic, deficient mythical climate of that time presented a threat, and the sudden onset of the mental structure brought about a decisive transformation. In our day the rationalistic, deficient mental structure presents an equal threat, and the breakthrough into the integral will also bring about a new and decisive mutation.
 
-**And the thing is, Collective Presencing is simultaneously so ambitious, yet so humble.** We can talk about this transformation of consciousness with the ambition of its very Yang counterparts, in the Metamodernism or Game B communities. But what I love about Collective Presencing is that it is radically simple: what is being asked of us is “full participation into life”, or as my Daoist ancestors describe: “let reality be reality. Let things flow naturally forward in whatever way they like.” 
+**And the thing is, Collective Presencing is simultaneously so ambitious, yet so humble.** We can talk about this transformation of consciousness with the ambition of its very Yang counterparts, for example, the Metamodernism or Game B communities. But what I love about Collective Presencing is that it is radically simple: what is being asked of us is “full participation into life”, or as my Daoist ancestors describe: “let reality be reality. Let things flow naturally forward in whatever way they like.” 
 
-When we step in alignment with our soul’s calling, we can act, and create with the flow. Actively living into the emergent moment is as much an act of surrender as much as it is a leap. You trust yourself, with the utmost humility to become what Bonnitta Roy describes as **“the first mover**” in the churning currents of change, 
+When we step in alignment with our soul’s calling, we can act, and create with the flow. Actively living into the emergent moment is as much an act of surrender as much as it is a leap. You trust yourself, with the utmost humility to become what Bonnitta Roy describes as **“the first mover**” in the churning currents of change.
 
-**Embodiment presencing is breaking through**
+
+
+**Breaking through** 
 
 It no longer feels selfish for me to slow down in these times of urgency (as Bayo Akomolafe would describe: Slowing down is not a function of speed, it’s a function of awareness): to meditate, to move my body, be openly curious without seeking to know, to go to therapy, to be moved by music ([A change is gonna come -- Sam Cooke](https://www.youtube.com/watch?v=fPr3yvkHYsE)), to laugh and cry, journal and draw, dance and make art. Ria read the following quote three times during one of our sessions, and I could read it every day, again and again: 
 
