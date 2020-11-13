@@ -22,8 +22,8 @@ I am out of practice when it comes to creation. I haven’t truly made art for m
 
 It’s shitty to be disappointed, but I’m learning not to run away. This is the time to slow down, and not rush creation. I can find the sacred in this gap, in this yawning crack in the ground between where I want to be, and where I am now. I can climb into the crack, curl up into its warm womb, and find the molten fire in it. There is a fire that is starting to simmer in me, and I have all the time to tend to it. 
 
-The other ingredient that a diamond needs beyond pressure and time? Fire. 
+The other ingredient that a diamond needs beyond pressure and time? Heat.
 
 Julia, a woman in my kinship group also shared a line from Mary Oliver: ***“only heat so deeply and intelligently born can carry a new idea into the air.”*** 
 
-I have pressure. I have fire. And of course, I have time. It is a goddamn pandemic after all.
+I have pressure. I have heat. And of course, I have time. It is a goddamn pandemic after all.
