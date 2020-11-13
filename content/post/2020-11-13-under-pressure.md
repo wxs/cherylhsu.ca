@@ -20,7 +20,7 @@ I do think I’ve cultivated a vibe that I love -- a strangely entangled, dream-
 
 I am out of practice when it comes to creation. I haven’t truly made art for myself since high school, the kind of art where you really *risk* yourself. My inner taste-judge is too loud, dismissive, and elitist: so I’ve always stewarded the visions of others, played the bass line of someone else’s song. 
 
-It’s shitty to be disappointed, but I’m learning not to run away. This is the time to slow down, and not rush creation. I can find the sacred in this gap, in this yawning crack in the ground between where I want to be, and where I am now. I can climb into the crack, curl up into the comb, and find the molten fire in it. There is a fire that is starting to simmer in me, and I have all the time to tend to it. 
+It’s shitty to be disappointed, but I’m learning not to run away. This is the time to slow down, and not rush creation. I can find the sacred in this gap, in this yawning crack in the ground between where I want to be, and where I am now. I can climb into the crack, curl up into its warm womb, and find the molten fire in it. There is a fire that is starting to simmer in me, and I have all the time to tend to it. 
 
 The other ingredient that a diamond needs beyond pressure and time? Fire. 
 
