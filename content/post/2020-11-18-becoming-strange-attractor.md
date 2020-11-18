@@ -2,7 +2,7 @@
 title: Becoming Strange Attractor
 date: 2020-11-18T20:46:52.754Z
 ---
-According to Wikipedia, a **strange attractor** is “a value toward which a system tends to evolve, for a wide variety of starting conditions of the system.” These strange attractors are emergent patterns that arise out of chaotic systems, recurring vibrations of fractal constancy in the unpredictable chaos of the void. 
+According to Wikipedia, a **strange attractor** is “a value toward which a system tends to evolve, for a wide variety of starting conditions of the system.” These strange attractors are emergent patterns that arise out of chaotic systems, recurring fractal vibrations in the unpredictable cacophony of the void. 
 
 I am attracted to the strange attractor, but maybe less for the math-y bits. I feel drawn to the word ***strange***, which reminds me of the ***Strange Stranger***, a term from Timothy Morton that *“names an uncanny, radically unpredictable quality of life-forms. Life-forms recede into strangeness the more we think about them, and whenever they encounter one another—the strangeness is irreducible.”* 
 
