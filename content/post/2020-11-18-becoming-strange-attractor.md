@@ -16,7 +16,7 @@ I think all matter vibrates, [all things resonate](https://blogs.scientificameri
 
 And in this world of vibrations matter-ing and matter vibing, what is my role as a designer (in the purest sense of design: to have intention) in complex systems? Artists are great at vibes, and the diversity of artworks created reveal the plurality of different vibes in the world. I'm sensing that I can create a vibe, but I can also *tune in.* 
 
-I'm starting to wonder if the role as designer/facilitator is to help tune, attenuate, modulate across different vibes towards collective emergence -- to figure out how to improvise and "jam" together. What if instead of trying to pick up a thread in the entangled mass of “wicked” problems, I pluck at the thread like an instrument? What if my job is not to find the perfect intervention points to untangle the system, but to vibe at a different frequency, and then trust the cascading vibrations of the [butterfly effect](https://en.wikipedia.org/wiki/Butterfly_effect)? 
+I'm starting to wonder if the role as designer/facilitator is to help tune, attenuate, modulate across different vibes towards collective emergence -- to figure out how to improvise and "jam" to make beautiful music together. What if instead of trying to pick up a thread in the entangled mass of “wicked” problems, I pluck at the thread like an instrument? What if my job is not to find the perfect intervention points to untangle the system, but to vibe at a different frequency, and then trust the cascading vibrations of the [butterfly effect](https://en.wikipedia.org/wiki/Butterfly_effect)? 
 
 That way, we are called to what Donella Meadows describes as “dancing with the system.” 
 
