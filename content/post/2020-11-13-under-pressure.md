@@ -6,7 +6,7 @@ I was carried by [Kenny’s Room](https://kennyzhao.com/kennysroom) on my run to
 
 In the track "pressure" (9), there is an intro describing the quality of rap music: 
 
-> “when you talk about rap music, what you’re hearing is pressure. You know how you make a diamond, carbon (no pun intended but it is black). Carbon. Time. Pressure. That’s how this music happens.” 
+> “when you talk about rap music, what you’re hearing is pressure. You know how you make a diamond? Carbon (no pun intended but it *is* black). Time. Pressure. That’s how this music happens.” 
 
 I *needed* to hear this. 
 
