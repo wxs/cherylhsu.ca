@@ -4,6 +4,8 @@ date: 2020-11-18T20:46:52.754Z
 ---
 According to Wikipedia, a **strange attractor** is “a value toward which a system tends to evolve, for a wide variety of starting conditions of the system.” These strange attractors are emergent patterns that arise out of chaotic systems, recurring fractal vibrations in the unpredictable cacophony of the void. 
 
+![](/images/img-6043.jpg)
+
 I am attracted to the strange attractor, but maybe less for the math-y bits. I feel drawn to the word ***strange***, which reminds me of the ***Strange Stranger***, a term from Timothy Morton that *“names an uncanny, radically unpredictable quality of life-forms. Life-forms recede into strangeness the more we think about them, and whenever they encounter one another—the strangeness is irreducible.”* 
 
 The **strangeness** is the irreducible gap between what we try to pin down and map, and the constantly shifting territory. It's the space of divine mystery. For some reason, out of fear, we've sought to stamp out this enchanting complexity, to assimilate it into the territory of the known and the controllable. I think that we need to fall in love with this strangeness, this always receding mystery of the “other”.  It reminds me of Esther Perel’s description of the paradox of love, which rests on the pillars of surrender (our need for togetherness) and autonomy (our need for separateness). Connection requires some degree of separation, of “strangeness” : 
