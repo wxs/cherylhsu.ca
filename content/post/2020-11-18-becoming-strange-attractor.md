@@ -32,9 +32,9 @@ Sometimes, I see my “self” as sovereign bounded identities: I am “Cheryl�
 
 At the beginning of the summer, I decided to walk away from a hugely significant position in my life, a national systems change project that seemed to be right for me in all the ways on paper: an amazing team, values-aligned mission, a truly innovative theory of change. And it *was* right for me for the first two years that I worked on it -- it changed me profoundly, and took me to new learning edges that overlooked beautiful vistas of potentiality. But the truth is, at some point, me and this role stopped vibing with each other. It started feeling heavy and discordant, but I was so attached to the idea of being a part of it that I held on, even though it didn’t make me want to dance anymore.  
 
-Leaving is one of the proudest decisions I’ve made, because by leaving, I was able to save an enduring friendship, and also because I followed my intuition toward the unknown. When I left, I gave myself permission to not fill the gap with the next thing. Instead I was called to a “receptor space”, a “Hollow”, this self-directed Masters, to invite contamination of alien vibrations and strange attractors. This was my **choice.** 
+Leaving is one of the proudest decisions I’ve made, because by leaving, I was able to save an enduring friendship, and also because I followed my intuition toward the unknown. When I left, I gave myself permission to not fill the gap with the next thing. Instead I was called to a question, a “receptor space”, a “Hollow”, this self-directed Masters --  to invite contamination of alien vibrations and strange attractors. This was my intention and my **choice.** 
 
-But is it just *my* choice? In the queer quiet of this time, I’m listening to and noticing something different. I’m learning how to use the resonance of my body to know who or what I am attracting towards. And to know who or what is attracting me. 
+But is it just ***my*** choice? In the queer quiet of this time, I’m listening to and noticing something different. I’m learning how to use the resonance of my body to know who or what I am attracting towards. And to know who or what is attracting me. 
 
 Bayo Akomolafe joined a session with my kinship group, and he told a story about a cetologist studying orcas: 
 
