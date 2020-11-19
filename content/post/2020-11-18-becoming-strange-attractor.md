@@ -16,7 +16,7 @@ The **strangeness** is the irreducible gap between what we try to pin down and m
 
 And then the experience of **“attraction”**, in the sense of being pulled towards. I’ve never really been into the new-agey “Law of Attraction” of “The Secret” theories -- actually, I’m a little bit creeped out by them (but then again, I enjoy being creeped out). Maybe it’s because I don’t believe in mind over matter -- for me, mind is matter, and we need to embrace a more entangled understanding of matter and meaning (in the New Materialist sense of Karen Barad). 
 
-For me, attraction is sensed with vibes. 
+For me, attraction is ***vibing***.
 
 I think all matter vibrates, [all things resonate](https://blogs.scientificamerican.com/observations/the-hippies-were-right-its-all-about-vibrations-man/). We swim in an ocean of frequencies. When the vibe that I put out interacts with another vibe, sometimes there is resonance, other times, dissonance. Sometimes the vibes are cacophonous waves, sometimes they sway with quiet tenderness. In fact, I enjoy it when vibes clash, most of my favourite songs contain dissonance, my favourite conversations include disagreement. Beauty transcends the binaries of right/wrong, good/bad -- something ugly can be beautiful and move you. 
 
@@ -26,7 +26,7 @@ I'm starting to wonder if the role as designer/facilitator is to *tune into* dif
 
 That way, we are called to what Donella Meadows describes as “dancing with the system.” 
 
-In practice, I sense that designing vibes is about unfurling the mystery behind a question, and not chasing an outcome. At a High Pitch session, Bonnie described that choice-making is “the will asking and investigating into a very interesting question of life!” What a fun and wonder-filled path of committed exploration into the unknown! And then what makes a good question? Nora Bateson, in her “Hallway of Hallways” sensemaking session describes that it is in the tone of the question: “Can your question change the tonality of what is possible?” 
+In practice, I sense that designing vibes is about unfurling the mystery behind a question, and not chasing an outcome. At a [High Pitch](https://www.youtube.com/watch?v=uVI7xyYBDhY) session, Bonnie described that choice-making is “the will asking and investigating into a very interesting question of life!” What a fun and wonder-filled path of committed exploration into the unknown! And then what makes a good question? Nora Bateson, in her “[Hallway of Hallways](https://www.youtube.com/watch?v=JVcYMgIu-3s)” sensemaking session describes that it is in the tone of the question: “Can your question change the tonality of what is possible?” 
 
 Absolutely. Sometimes, I’m in sessions and workshops with people and it feels awkward at the beginning, but at some point (usually invited through an unexpected moment of vulnerability), we hit a certain generative pitch and conversation flows in this powerful natural current. In these moments, I briefly touch the Tao. 
 
@@ -46,4 +46,4 @@ Bayo Akomolafe joined a session with my kinship group, and he told a story about
 
 This story sends shivers down my spine (am I creeped out?). 
 
-A human-centred cosmology sees the human as the actor who knows her object of study. But when is the scientist being studied back? A human-centred cosmology sees the human as "finding her calling", but what is calling her? This question at the heart of this is the **strange attractor**.
+A human-centred cosmology sees the human as the actor who knows her object of study. But when is the scientist being studied back? A human-centred cosmology sees the human as "finding her calling", but who - or what - is calling her? This question at the heart of this is the **strange attractor**.
