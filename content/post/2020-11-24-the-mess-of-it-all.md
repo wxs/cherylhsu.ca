@@ -4,7 +4,7 @@ date: 2020-11-24T15:14:39.379Z
 ---
 This journal is proving to be a very effective container for gathering threads. It started as this little woven basket that I’ve stowed away at the corner of my head, and when I find a cool piece of string or yarn, I stick it into my basket. 
 
-It’s rapidly building up through, so now I’m sitting with this quickly amassed mess of differently coloured string, and this mounting sense (dread?) that I’m going to have to eventually go through the patient effort of untangling it. Maybe if I can gather and categorize them into little perfect balls of yarn -- reds with reds, greens with greens, checkered with checkered --  I can actually start work with and make something *real* with it. 
+It’s rapidly building up through, so now I’m sitting with this quickly amassed mess of differently coloured string, and this mounting sense (dread?) that I’m going to have to eventually go through the patient effort of untangling it. Maybe if I can gather and categorize them into little perfect balls of yarn -- reds with reds, greens with greens, checkered with checkered --  I can actually start work with and weave something *real* with it. 
 
 The problem is, I hate untangling things. I get impatient and irritated by how my necklaces braid together in confounding ways, my headphones intertwining into a tentacular beast of knots and twists, the accumulating mass of cables and extension cords from discontinued electronics, old devices and printers that we keep around in a box *just in case*. Dealing with them scares me, and I have to resist the brazen impulse to just take a massive pair of scissors and shear through the Gordian knot. 
 
