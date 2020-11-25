@@ -30,7 +30,7 @@ So I’ll pick up some threads with sweaty and fumbling fingers, and begin to we
 * Relationship between building self-sovereignty and surrendering to collective entanglement 
 * The plural pantheon of selves and the question of authenticity 
 * Digging into cracks in modernity to dance with the monsters and the more-than-human 
-* Spirituality innovation and design 
+* Spiritual innovation and design 
 
 The “courses” and emergent spaces of learning I’ve been attending in my self-directed Masters are listed below, and I’m sure more will appear with time.  I will be drawing from these sources in my reflections:
 
@@ -40,8 +40,10 @@ The “courses” and emergent spaces of learning I’ve been attending in my se
   * [The Hollow ](https://www.youtube.com/watch?v=I-4SBv1PfCU)with Bonnitta Roy 
   * [Metapsychology](https://www.youtube.com/watch?v=PZNDhdKekjg) with Zak Stein 
 * [Visual Presencing ](https://www.presencing.org/programs/marketplace/visual-practice-for-theory-u)and Awareness-based Systems Change with Otto Scharmer ([Theory U](https://www.presencing.org/aboutus/theory-u))
-* [Gender Equity and Reconciliation International ](https://www.genderreconciliationinternational.org/)
-* Spiritual Innovation Sangha 
+* [Gender Equity and Reconciliation International](https://www.genderreconciliationinternational.org/)
+* Spiritual Innovation Sangha
+
+
 
 This section is more about attribution, and I intend on further exploring the way these various explorations weave together into new patterns with time. 
 
