@@ -58,7 +58,7 @@ The pattern of diffraction inter-penetrate through fractal scales. Two years ago
 
 I’ve spent so much of my life wanting so desperately to “belong”, of trying to be on the “inside”. As an immigrant to Canada, I held deeply buried fears of being seen as “other”, as the weird Chinese girl who brings stinky lunches to school; as a “woman” who needs to be attractive to be valued, intelligent to be respected; as a “Catholic” who needs to be good for salvation. So I rejected the identities that made me other. I just wanted to be pure. I just wanted to be safe.  
 
-But what is *safety*? What really scares us about not being safe? There is no avoiding the shadows that the light casts, so why don’t we dwell with it? 
+But what is *safety*? What really scares us about not being safe? There is no avoiding the shadows that the light casts, so how do learn to dwell with it? 
 
 Through the gift of this experience, I learned that everything that I worked so hard to avoid or overcome was just buried deep, and as Carl Jung would say: “I’d rather be whole than good.” 
 
