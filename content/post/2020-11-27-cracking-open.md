@@ -34,7 +34,7 @@ This is a story about the first time that my body screamed at me: “NOTICE ME!�
 
 It has catalyzed a process of reconnection ever since. I’ve had time to process this experience and learn about somatic processing and the traumas that are enfleshed. When I arrive back to it, I notice how the resonating threads of my self-directed masters are weaved together here. 
 
-But in that moment, I was relishing in the shock and sense of alienation from my body. What was this strange, monstrous territory below my neck, and what possessed me in this fierce and animal-like way? 
+But in that present moment, I was relishing in the shock and sense of alienation from my body. What was this strange, monstrous territory below my neck, and what possessed me in this fierce and animal-like way? 
 
 This experience invited a newfound curiosity about my body. A crack had opened up in the ground, revealing a deep and ancient well. Afterwards, I looked at my body as this mysterious new landscape, a dark forest that was beckoning me in. And I knew that I needed to crawl rather than walk in this shadowy territory, that I couldn’t just explore it through my mind and my thoughts. What is the container of the body, and where does it root down? I sense that the well I’ve uncovered is a deep channel that descends down to dark and primordial waters. There, the shadows and the monsters lie, the woman with the wet black hair, at the bottom of the well.
 
