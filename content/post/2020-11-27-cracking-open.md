@@ -2,6 +2,8 @@
 title: Cracking open
 date: 2020-11-26T23:49:40.299Z
 ---
+![](/images/tepotzlan.jpg)
+
 It’s March 2018: I have arrived in Tepoztlán after a trafficked three-hour drive out from Mexico City and I’m buzzing with nervous anticipation. I was invited to a gathering and I had no idea what to expect except for the fact that it had an intimidating ambition, we were meeting “about the future of politics and the role of design in changing cities, borders and the realities of citizenship.”  I felt honoured to be invited in, but the truth was, I  felt the heavy weight of imposter syndrome: who was I to be invited into a discussion about the future of politics?  
 
 I soon learned that I was not alone with this sense of heaviness. We were just over a year into the Trump presidency and the frustration was weighing on the group. There was a palpable desire to start finding solutions moving forward -- that is after all, the reason why we gathered. However, the group is scarcely able to agree on the agenda and facilitation, much less the content of discussion. 
@@ -23,8 +25,6 @@ Eventually, my crying dwindles. Eventually, I stand up, and I continue on to the
 I was embarrassed, but I was not ashamed. Because it was real, and there was no way I could have held it back. 
 
 \--- 
-
-
 
 This is a story about the first time that my body screamed at me: “NOTICE ME!” It has catalyzed a process of reconnection ever since. I’ve had time to process this experience since, and have learned about somatic processing and the traumas that are enfleshed. When I arrive back it, I notice how the resonating threads of my self-directed masters weaved together here. 
 
@@ -71,3 +71,5 @@ But then I close my eyes, and I remember the sacred healing of the ***place*** t
 At the airport when we fly back, I get into a screaming fight with a friend who I had invited, even though(because) I sensed a growing distance between us. We fight like a bickering old couple about ideology.  We become closer on the other side. 
 
 Let’s not try too hard to tease out the threads that this story gathers here.
+
+![](/images/tepozlan-2.jpg)
