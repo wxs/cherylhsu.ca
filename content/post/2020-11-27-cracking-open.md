@@ -62,11 +62,11 @@ But what is *safety*? What really scares us about not being safe? There is no av
 
 Through the gift of this experience, I learned that everything that I worked so hard to avoid or overcome was just buried deep, and as Carl Jung would say: “I’d rather be whole than good.” 
 
-So now, I reconnect with my body to embrace the osmosis of my flesh as “sensorium”, an organ of perception to sense-fully engage how I, we, are always becoming with the world around us. Becoming-here, in this richly situated way, couldn’t have happened without this story of rupture, and this story couldn’t have happened without the unsafe and transgressive nature of its context, without the imperfect confusion of its people, without the strange and portentous time that gathered us all together. We were never meant to be perfect. We were never meant to fix or be fixed. Instead, the “purity” of my fix-it mind was contaminated and troubled by my body, a teaming biome of complex contradictions and life forms. 
+So now, I reconnect with my body to embrace the osmosis of my flesh as “sensorium”, an organ of perception to sense-fully engage how I, we, are always becoming with the world around us. Becoming-here, in this richly situated way, couldn’t have happened without this story of rupture, and this story couldn’t have happened without the unsafe and transgressive nature of its context, without the imperfect confusion of its people, without the strange and portentous time that gathered us all together. We were never meant to be perfect. We were never meant to fix or be fixed. Instead, the “purity” of the fix-it mind is contaminated and troubled by the embarrassment of the body, a teaming biome of complex contradictions and life forms. 
 
 I write this story because it is easy to feel like we/I failed, as though we/I did something wrong. 
 
-But then I close my eyes, and I remember the sacred healing of the ***place*** that gathered us. I look out at the distant mountains in Tepoztlan and I place my hand on the ancient rock. The guide tells us to notice the thrum of the energy. I’m still feeling the vibrational tenderness from crying so hard in front of strangers. 
+But then I close my eyes, and I remember the sacred healing of the ***place*** that brought us together. I look out at the distant mountains in Tepoztlan and I place my hand on the ancient rock. The guide tells us to notice the thrum of the energy. I’m still feeling the vibrational tenderness from crying so hard in front of so many strangers. 
 
 At the airport when we fly back, I get into a screaming fight with a friend who I had invited, even though(because) I sensed a growing distance between us. We fight like a bickering old couple about ideology.  We become closer on the other side. 
 
