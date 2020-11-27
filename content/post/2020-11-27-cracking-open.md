@@ -4,7 +4,7 @@ date: 2020-11-26T23:49:40.299Z
 ---
 ![](/images/tepotzlan.jpg)
 
-It’s March 2018: I have arrived in Tepoztlán after a trafficked three-hour drive out from Mexico City and I’m buzzing with nervous anticipation. I was invited to a gathering and I had no idea what to expect except for the fact that it had an intimidating ambition, we were meeting “about the future of politics and the role of design in changing cities, borders and the realities of citizenship.”  I felt honoured to be invited in, but the truth was, I  felt the heavy weight of imposter syndrome: who was I to be invited into a discussion about the future of politics?  
+It’s March 2018: I have arrived in Tepoztlán after a trafficked three-hour drive out from Mexico City and I’m buzzing with nervous anticipation. I've been invited to a gathering and I have no idea what to expect other than its intimidating ambition, we were meeting “about the future of politics and the role of design in changing cities, borders and the realities of citizenship.”  I felt honoured to be invited in, but the truth was that I also sensed the heavy weight of imposter syndrome: who was ***I*** to be invited into a discussion about the future of politics?  
 
 I soon learned that I was not alone with this sense of heaviness. We were just over a year into the Trump presidency and the frustration was weighing on the group. There was a palpable desire to start finding solutions moving forward -- that is after all, the reason why we gathered. However, the group is scarcely able to agree on the agenda and facilitation, much less the content of discussion. 
 
@@ -24,7 +24,11 @@ Eventually, my crying dwindles. Eventually, I stand up, and I continue on to the
 
 I was embarrassed, but I was not ashamed. Because it was real, and there was no way I could have held it back. 
 
+
+
 \--- 
+
+
 
 This is a story about the first time that my body screamed at me: “NOTICE ME!” It has catalyzed a process of reconnection ever since. I’ve had time to process this experience and learned about somatic processing and the traumas that are enfleshed. When I arrive back to it, I notice how the resonating threads of my self-directed masters are weaved together here. 
 
@@ -52,15 +56,15 @@ The reason why I share this story is not to memorialize this experience as a sin
 
 > **“Diffraction is the spreading of waves around obstacles**… For example, when a beam of light falls on the edge of an object, it will not continue in a straight line. The point where the light hits the edge acts as a second wave source. As a result, some of the waves are bent slightly around the corner. Because of diffraction, sharp shadows are not produced, and there will be a blur at the edge of the shadow of the object.” 
 
-Our obstacles twist and contort us in weird ways, and can make us look monstrous. But when I’m forced to bend down, my chest heaving, my wet face pressed to the ground, my attachment to the “only way forward” is disrupted. Different paths are revealed (ones that were already there), even if it means I have to crawl. 
+Our obstacles twist and contort us in weird ways, and can make us look monstrous. But when I’m forced to bend down, my chest heaving, my wet face pressed to the ground, my attachment to the “only way forward” is disrupted. Different paths are revealed (ones that were always there), even if it means I have to crawl. 
 
-The pattern of diffraction inter-penetrates through fractal scales. Two years ago in Mexico, we were desperate with the belief that something was bad and wrong with the world, and we were this team of people --  designers, activists, business innovators -- called together to ***fix*** it. But we could barely agree with one another, and everything fell apart. Our group was a microcosm of deeply entangled relationships that weaved together conflicting ideas about class and borders and race, and more deeply, what does it truly mean to be “included” or “excluded”, to be seen as “other”? In my body, the same conflicts were brewing.  
+The pattern of diffraction interpenetrates through fractal scales. Two years ago in Mexico, we were desperate with the belief that something was bad and wrong with the world, and we were this team of people --  designers, activists, business innovators -- called together to ***fix*** it. But we could barely agree with one another, and everything fell apart. Our group was a microcosm of deeply entangled relationships that weaved together conflicting ideas about class and borders and race, and more deeply, what does it truly mean to be “included” or “excluded”, to be seen as “other”? In my body, the same conflicts were brewing.  
 
-I’ve spent so much of my life wanting so desperately to “belong”, of trying to be on the “inside”. As an immigrant to Canada, I held deeply buried fears of being seen as “other”, as the weird Chinese girl who brings stinky lunches to school; as a “woman” who needs to be attractive to be valued, intelligent to be respected; as a “Catholic” who needs to be good for salvation. So I rejected the identities that made me other. I just wanted to be pure. I just wanted to be safe.  
+I’ve spent so much of my life wanting so desperately to “belong”, of trying to be on the “inside”. As an immigrant to Canada, I held deeply buried fears of being seen as “other”, as the "Chinese girl" who brings stinky lunches to school; as a “woman” who needs to be attractive to be valued, intelligent to be respected; as a “Catholic” who needs to be good for salvation. So I rejected the identities that made me other. I just wanted to be pure. I just wanted to be safe.  
 
 But what is *safety*? What really scares us about not being safe? There is no avoiding the shadows that the light casts, so how do learn to dwell with it? 
 
-Through the gift of this experience, I learned that everything that I worked so hard to avoid or overcome was just buried deep, and as Carl Jung would say: “I’d rather be whole than good.” 
+Through the gift of this experience, I learned that everything that I worked so hard to avoid or overcome was just buried deep, and as Carl Jung would say: *“I’d rather be whole than good.”* 
 
 So now, I reconnect with my body to embrace the osmosis of my flesh as “sensorium”, an organ of perception to sense-fully engage how I, we, are always becoming with the world around us. Becoming-here, in this richly situated way, couldn’t have happened without this story of rupture, and this story couldn’t have happened without the unsafe and transgressive nature of its context, without the imperfect confusion of its people, without the strange and portentous time that gathered us all together. We were never meant to be perfect. We were never meant to fix or be fixed. Instead, the “purity” of the fix-it mind is contaminated and troubled by the embarrassment of the body, a teaming biome of complex contradictions and life forms. 
 
@@ -70,6 +74,10 @@ But then I close my eyes, and I remember the sacred healing of the ***place*** t
 
 At the airport when we fly back, I get into a screaming fight with a friend who I had invited, even though(because) I sensed a growing distance between us. We fight like a bickering old couple about ideology.  We become closer on the other side. 
 
+
+
 Let’s not try too hard to tease out the threads that this story gathers here.
+
+
 
 ![](/images/tepozlan-2.jpg)
