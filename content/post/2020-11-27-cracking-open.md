@@ -66,7 +66,7 @@ I’ve spent so much of my life wanting so desperately to “belong”, of tryin
 
 But what is *safety*? What really scares us about not being safe? There is no avoiding the shadows that the light casts, so how do we learn to dwell with it? 
 
-Through the gift of this experience, I learned that everything that I worked so hard to avoid or overcome was just buried deep, and as Carl Jung would say: *“I’d rather be whole than good.”* 
+Through the gift of this experience, I learned that everything that I worked so hard to avoid or overcome was just buried deep into the shadows, and as Carl Jung would say: *“I’d rather be whole than good.”* 
 
 So now, I reconnect with my body to embrace the osmosis of my flesh as “sensorium”, an organ of perception to sense-fully engage how I, we, are always becoming with the world around us. Becoming-here, in this richly situated way, couldn’t have happened without this story of rupture, and this story couldn’t have happened without the unsafe and transgressive nature of its context, without the imperfect confusion of its people, without the strange and portentous time that gathered us all together. We were never meant to be perfect. We were never meant to fix or be fixed. Instead, the “purity” of the fix-it mind is contaminated and troubled by the embarrassment of the body, a teaming biome of complex contradictions and life forms. 
 
