@@ -26,7 +26,7 @@ I was embarrassed, but I was not ashamed. Because it was real, and there was no 
 
 \--- 
 
-This is a story about the first time that my body screamed at me: “NOTICE ME!” It has catalyzed a process of reconnection ever since. I’ve had time to process this experience since, and have learned about somatic processing and the traumas that are enfleshed. When I arrive back it, I notice how the resonating threads of my self-directed masters weaved together here. 
+This is a story about the first time that my body screamed at me: “NOTICE ME!” It has catalyzed a process of reconnection ever since. I’ve had time to process this experience and learned about somatic processing and the traumas that are enfleshed. When I arrive back to it, I notice how the resonating threads of my self-directed masters weaved together here. 
 
 But in that moment, I was relishing in the shock and sense of alienation from my body. What was this strange, monstrous territory below my neck, and what possessed me in this fierce and animal-like way? 
 
