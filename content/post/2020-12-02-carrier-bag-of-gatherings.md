@@ -8,7 +8,7 @@ She writes: “The mammoth hunters spectacularly occupy the cave wall and the mi
 
 People -- often women -- have collected food from the earth, often in such abundance that it leaves time to go and hunt animals to come back home with meat and a heroic story. Why do we believe that it is better to tell a gripping tale about Joseph Campbell’s hero, with its action and weapons and spears, with its triumph and tragedy? The story of the hero is shiny and entertaining, it centers the human, the main character and his journey of Adventure! Revelation! Transformation! Triumph! Return!
 
-I have enjoyed these stories, but they are also wearing thin: these linear, clean narratives of heroes and egoes. I’m tired of the great artist. Of conquering viruses, of winning at being good, of vengeance and retributive justice. I want to indulge in the satisfying stillness and troubled tumult of the everyday, in the fecund abundance of the quotidian: 
+I have enjoyed these stories, but they are also wearing thin: these linear, clean narratives of heroes and egoes. I’m tired of the great artist. Of conquering viruses, of vengeance and retributive justice, of winning at being good. I want to indulge in the satisfying stillness and troubled tumult of the everyday, in the fecund abundance of the quotidian: 
 
 in resting my cheek on soft fur and and letting vibrational thrum of a purring cat calm\
 in feeling my fingers freeze from the arrival of the north winds\
