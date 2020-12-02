@@ -26,4 +26,4 @@ Today at a gathering, I asked someone a question about his journey, about how he
 
 When you think about your story of arrival -- just imagine all the relationships that led to the relationships that led to the relationships that led to the relationships, that lead to where you are now. 
 
-Now let us witness the astonishing complexity of the life story.
+Now let us witness the astonishing, sacred, complexity of the life story.
