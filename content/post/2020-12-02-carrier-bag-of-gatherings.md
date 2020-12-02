@@ -24,6 +24,6 @@ So Ursula Le Guin proposes the “bottle” as the hero: the container, the bask
 
 Today at a gathering, I asked someone a question about his journey, about how he had arrived. He pauses, meanders, laughs, and responds that he doesn’t know -- not *really.* Then he invites an approach from Nora Bateson:
 
-When you think about how you got here -- just imagine all the relationships that led to the relationships that led to the relationships that led to the relationships, that led to where you are now. 
+When you think about your story of arrival -- just imagine all the relationships that led to the relationships that led to the relationships that led to the relationships, that lead to where you are now. 
 
 Now let us witness the astonishing complexity of the life story.
