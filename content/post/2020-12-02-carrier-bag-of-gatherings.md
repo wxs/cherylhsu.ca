@@ -14,7 +14,7 @@ in resting my cheek on soft fur and and letting vibrational thrum of a purring c
 in feeling my fingers freeze from the arrival of the north winds\
 in the warm glow of a plastic christmas tree with dollar store ornaments\
 in sensuously swaying my hips with virtual strangers\
-in the quiet connective magic of virtual gatherings, of gatherings and gathering
+in the quiet connective magic of gathering, of gatherings and gathering
 
 So Ursula Le Guin proposes the “bottle” as the hero: the container, the basket, the holder, the recipient. The carrier bag that holds what we gather to feed and nourish ourselves, that scatters seeds as we walk and live together. 
 
