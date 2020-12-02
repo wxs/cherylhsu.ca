@@ -22,7 +22,7 @@ So Ursula Le Guin proposes the “bottle” as the hero: the container, the bask
 >
 > It's unfamiliar, it doesn't come easily, thoughtlessly to the lips as the killer story does; but still, "untold" was an exaggeration. People have been telling the life story for ages, in all sorts of words and ways. Myths of creation and transformation, trickster stories, folktales, jokes, novels...” 
 
-Today at a gathering, I asked someone a question about his journey, about how he had arrived. He pauses, meanders, laughs, responds that he doesn’t know -- not really --  and invites an approach from Nora Bateson... 
+Today at a gathering, I asked someone a question about his journey, about how he had arrived. He pauses, meanders, laughs, and responds that he doesn’t know -- not *really.* Then he invites an approach from Nora Bateson:
 
 When you think about how you got here -- just imagine all the relationships that led to the relationships that led to the relationships that led to the relationships, that led to where you are now. 
 
