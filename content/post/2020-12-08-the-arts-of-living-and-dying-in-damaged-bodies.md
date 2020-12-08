@@ -92,7 +92,7 @@ The context collapse of the intersecting purity tests of our social identities m
 
 > “If we want a world with less suffering and more flourishing, it would be useful to perceive complexity and complicity as the constitutive situation of our lives, rather than as things we should avoid.” 
 
-So back to the Mexican standoff.  My hands are up in the air. I am a bad feminist. I am not good, but I want to be whole. So I ask, can we stop beating each other, *please*?  Can we end this noxious cycle of self-flagellation for salvation? Can we slow down, and just heal our damaged bodies, the damage of our collective body? Can we stay with the trouble of our wounded messiness, with the “enemy” that lurks inside all that we love?  
+So back to the Mexican standoff.  My hands are up in the air. I am a [bad feminist.](https://www.theguardian.com/world/2014/aug/02/bad-feminist-roxane-gay-extract) I am not good, but I want to be whole. So I ask, can we stop beating each other, *please*?  Can we end this noxious cycle of self-flagellation for salvation? Can we slow down, and just heal our damaged bodies, the damage of our collective body? Can we stay with the trouble of our wounded messiness, with the “enemy” that lurks inside all that we love?  
 
 The Zen koan illustrates a way out of the double bind. The student “changes the lever of communication”, walks up to the teacher, grabs the stick, and breaks it. 
 
