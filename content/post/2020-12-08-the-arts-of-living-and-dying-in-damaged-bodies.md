@@ -30,19 +30,13 @@ In one of the later sessions, a man in the group shares that all he wants to do 
 
 My tears show up in tender response, in solidarity. When someone shares a story from vulnerability, the armour begins to crack and melt. Vulnerability is such a profoundly precious and fragile thing: it shows up in the **tremble** of a voice. Trembling, shaking, and quivering, cracks something open. It makes you fall to pieces for a small and infinite moment -- atoms, particles, vibrate, scatter apart. You fall apart into the void. This experience is fucking scary, because it makes you feel small and fragile, and you have no idea whether you can piece yourself back together again. 
 
-But falling apart a brief pause in the story of separation -- it is a small death, an outbreath, a momentary return to the primordial ocean. My body shatters into particles that are freed to dance and interpenetrate with others, and for a moment, we are all one. 
+**But falling apart a brief pause in the story of separation.** It is a small death, an out-breath, a momentary return to the primordial ocean. My body shatters into particles that are freed to dance and interpenetrate with others, and for a moment, we are all one. 
 
 When it is my turn to speak, I say to the men that I love them. That they are not alone.
 
 > “As the community stays with the uncomfortable tension of contradiction, individuals begin to perceive the truth of “the other” as their own experience, and the polarities of conflicting positions often dissolve into an unexpected emergence of a deeper underlying unity: a profound recognition that, ultimately, there is no “other”. We are all one.”\
 > \
 > ― William Keepin, Divine Duality: The Power of Reconciliation Between Women and Men
-
-
-
-
-
-
 
 ## **\--**
 
@@ -69,8 +63,6 @@ One of my kin shared the triple-goddess Jungian archetype of Maiden, Mother and 
 > An ancient Efik ceremonial practice in Calabar, southeast Nigeria, called Nkugho or Mbopo (for the Ibibios) comes to mind. The Nkugho, a dying art, is a fattening room. To prepare girls for womanhood, they were taken to a fattening room where they were fed delicious meals. Becoming fat was a sign of prosperity, abundance, and chastity. Fatness was a sign of beauty. In a sense, sanctuaries are Nkughos we are being invited into to become ‘wide’, to meet our intergenerational bodies, and to perform other shapes of aliveness and attentiveness to the world around us.
 
 Beneath the surface of my skin of my women-hood is a thick, fluid, messy space that is always shifting, moving, rippling, transgressing, trans-mutating. I want to become fat with the dripping abundance and richness of contradiction and complexity. 
-
-
 
 ## **\---**
 
@@ -115,10 +107,6 @@ But you can’t **bypass** the painful work of witnessing Truth. *“First Trut
 As my fingers gently trace the sensitive scar tissue, the stitches, that map the surface of our collective body, I start to wonder: Okay, but what happens after Reconciliation? 
 
 Something is starting to whisper to me that **we lose our shape**, and **we transform.**  
-
-
-
-
 
 > “The essence of the process at its best is basically the same: women and men join together as equals, they get deeply honest with each other about their experiences, and through this process they heal past wounds, awaken to new realisations together, reach a place of reconciliation and forgiveness, and are thereby mutually transformed.”
 >
