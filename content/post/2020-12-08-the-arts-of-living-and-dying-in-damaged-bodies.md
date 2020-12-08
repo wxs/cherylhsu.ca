@@ -84,7 +84,7 @@ There is a zen koan that illustrates the no-win situation of the double bind: "I
 
 The beatings we put each other through is what my kin called the **purity test**: “Prove that you are good, that you are pure. If you pass this test, you’re on the “good” side.” 
 
-There is satisfaction in knowing who the “bad guys” are  in the oppressor-oppressed dynamic -- when we empower ourselves through collective solidarity (the “good”!) to call out the enemy, retributive justice can finally prevail, vengeance can be deliciously served (This is why I enjoy Park Chan-wook films or the occasional Tarantino movie) But what happens when the “bad guys” are also part of me, existing within the complex ecology (or [family system](https://www.goodtherapy.org/learn-about-therapy/types/family-systems-therapy)) of my selfhood? 
+There is satisfaction in knowing who the “bad guys” are  in the oppressor-oppressed dynamic -- when we empower ourselves through collective solidarity (the “good”!) to call out the enemy, retributive justice can finally prevail, vengeance can be deliciously served. But what happens when the “bad guys” are also part of me, existing within the complex ecology (or [family system](https://www.goodtherapy.org/learn-about-therapy/types/family-systems-therapy)) of my selfhood? 
 
 **Shame.** The kind of suffocating, festering, shame that doesn’t allow me to heal, because I don’t deserve healing. Shame that tells me, “I am bad”, rather than “I did something bad.”
 
