@@ -2,8 +2,6 @@
 title: "The Arts of Living and Dying in Damaged Bodies "
 date: 2020-12-08T16:53:55.650Z
 ---
-## **\-**
-
 ## **Act 1: Fear and Trembling** 
 
 I finished a 6 week course on [Gender Equity and Reconciliation (GERI)](https://www.genderreconciliationinternational.org/) last week. A group of 25 people, approximately half who identify as men, half women, and some non-binary, were hosted for two hours on a weekly basis to dig deep into the lived traumas of gender dynamics together. The format is simple, but the progression of the time spent together effectively unravels you. 
