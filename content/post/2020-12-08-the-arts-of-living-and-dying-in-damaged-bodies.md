@@ -74,7 +74,7 @@ With the passionate care and sore anger of bruised fists against a system that r
 
 But what happens when we get stuck in these categories and these bodies? What happens when the identities that make us “seen” end up being the very boxes that imprison us?  
 
-Bayo Akomolafe spoke to this paradoxical problem so beautifully in my We Will Dance With Mountains course. He describes a dangerous moral dynamic where in order to lock down the “enemy” and the “oppressor”,  one has to lock oneself down into the same epistemological prison with no escape. We become “a zero-sum game, a Mexican standoff”: 
+Bayo Akomolafe spoke to this paradoxical problem so beautifully in my [We Will Dance With Mountains](https://course.bayoakomolafe.net/course-invitations-exercises/) course. He describes a dangerous moral dynamic where in order to lock down the “enemy” and the “oppressor”,  one has to lock oneself down into the same epistemological prison with no escape. We become “a zero-sum game, a Mexican standoff”: 
 
 > **The shape of the human is the rent that we have to pay to stay within Modern power.** That is why fugitivity is required today. Most activism seems to be stuck in a human narrative, because we’re incarcerated within the modern within-human relationships. It’s about me countering you, it’s about my identity overruling yours, it’s about getting the language right in the moment. So we’re stuck within ourselves, and so there is no spilling out into the world. **We are incarcerated in an epistemology of being.** The only dynamic that is present is that of inclusivity versus exclusivity. 
 
