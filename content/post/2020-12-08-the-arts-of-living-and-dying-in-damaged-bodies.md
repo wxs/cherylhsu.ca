@@ -96,7 +96,7 @@ So back to the Mexican standoff.  My hands are up in the air. I am a [bad femin
 
 The Zen koan illustrates a way out of the double bind. The student “changes the lever of communication”, walks up to the teacher, grabs the stick, and breaks it. 
 
-I am ready to break the binaries, but I’d rather melt them through warmth of connection and love. I want change, don’t want to beat up on men, on white people, anymore. I’m ready to let their pain and hurt and loneliness touch me. I want to help them, support them, love them. Because it also means that I can help, support and love the “yang” and the “masculine” in me, that co-exists and dances with my “yin”.  
+I am ready to break the binaries, but I’d rather melt them through warmth of love. I don’t want to beat up on men (on whiteness) anymore -- I *choose* loveas **"the will to nurture our own and another’s spiritual growth” (bell hooks)**. I want to help men, support them, love them. Because it also means that I can help, support and love myself --  the “yang” and the “masculine” in me, that co-exists and dances in balance with my “yin”.  
 
 Someone in my kinship group shared the article: “[Why Male Baboons Benefit From Female Friends](https://www.nytimes.com/2020/10/01/science/baboons-males-friendship.html)” and it made me tear up again. We need friendship to survive. We need kinship, in order to cultivate what Anna Tsing calls “the arts of living on a damaged planet”. We need to collectively navigate the arts of living and dying in damaged bodies. 
 
