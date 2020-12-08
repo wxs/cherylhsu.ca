@@ -78,7 +78,7 @@ Bayo Akomolafe spoke to this paradoxical problem so beautifully in my We Will Da
 
 > **The shape of the human is the rent that we have to pay to stay within Modern power.** That is why fugitivity is required today. Most activism seems to be stuck in a human narrative, because we’re incarcerated within the modern within-human relationships. It’s about me countering you, it’s about my identity overruling yours, it’s about getting the language right in the moment. So we’re stuck within ourselves, and so there is no spilling out into the world. **We are incarcerated in an epistemology of being.** The only dynamic that is present is that of inclusivity versus exclusivity. 
 
-When we incarcerate ourselves in the** *identity shapes***of our own making, we're also trapped in what Gregory Bateson (introduced to me by his daughter, Nora Bateson) calls the **double-bind**: the context collapse of conflicting messages around what is “right” and “good”  in the messy entanglement of our selfhood. 
+When we incarcerate ourselves in the **identity shapes** of our own making, we're also trapped in what Gregory Bateson (introduced to me by his daughter, Nora Bateson) calls the **double-bind**: the context collapse of conflicting messages around what is “right” and “good”  in the messy entanglement of our selfhood. 
 
 There is a zen koan that illustrates the no-win situation of the double bind: "If you say this stick is real, I will beat you. If you say this stick is not real, I will beat you. If you say nothing, I will beat you." Similarly, I feel like the social identities of “men” and “women” are also stuck in this double bind: “If you say that gender exists, I will beat you. If you say that gender does not exist, I will beat you.” Or race: “If you say that racial identity exists, I will beat you. If you say that racial identity exists, I will beat you. If you say nothing, I will beat you.”  
 
@@ -96,7 +96,7 @@ So back to the Mexican standoff.  My hands are up in the air. I am a bad femini
 
 The Zen koan illustrates a way out of the double bind. The student “changes the lever of communication”, walks up to the teacher, grabs the stick, and breaks it. 
 
-I am ready to break the binaries, but I’d rather melt them through warmth of connection and love. I don’t want to beat up on men, on white people, anymore. I’m ready to let their pain and hurt and loneliness touch me. I want to help them, support them, love them. Because it also means that I can help, support and love the “yang” and the “masculine” in me, that co-exists and dances with my “yin”.  
+I am ready to break the binaries, but I’d rather melt them through warmth of connection and love. I want change, don’t want to beat up on men, on white people, anymore. I’m ready to let their pain and hurt and loneliness touch me. I want to help them, support them, love them. Because it also means that I can help, support and love the “yang” and the “masculine” in me, that co-exists and dances with my “yin”.  
 
 Someone in my kinship group shared the article: “[Why Male Baboons Benefit From Female Friends](https://www.nytimes.com/2020/10/01/science/baboons-males-friendship.html)” and it made me tear up again. We need friendship to survive. We need kinship, in order to cultivate what Anna Tsing calls “the arts of living on a damaged planet”. We need to collectively navigate the arts of living and dying in damaged bodies. 
 
