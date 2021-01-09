@@ -1,5 +1,5 @@
 ---
-title: Shaping Change and Creating New Worlds
+title: Shaping Change through Creation (New Year Intentions Part 1)
 date: 2021-01-05T20:12:09.185Z
 ---
 It’s the New Year™! 
