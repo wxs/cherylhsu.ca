@@ -1,5 +1,5 @@
 ---
-title: Shaping Change through Creation (New Year Intentions Part 1)
+title: Shaping Change by Leaping (New Year Intentions Part 1)
 date: 2021-01-05T20:12:09.185Z
 ---
 It’s the New Year™! 
@@ -28,15 +28,17 @@ Since that period in my life, I’ve kept the vulnerability of “Art” in the 
 
 Starting this [Self-Directed Masters](https://cherylhsu.ca/post/2020-11-06-commitment-to-calling/) two months ago was a starting point in giving me permission to reconnect with this inner voice -- my soul’s calling. **My commitment to resourcing this space of my Self-Directed masters -- with my presence, time, energy, and dedication to showing, even when I’m not inspired -- is how I choose to change the riverbed of where the water flows.** 
 
-However, I still disagree with Robert’s idea that you have to know exactly what you want in order to create it. That requires to see the artwork as an *object* to be manifested. I resonate more with Heidegger’s description of art making and *poiesis*: 
+However, I still disagree with Robert’s idea that you have to know exactly what you want in order to create it. That requires to see the artwork -- the *future* --  as an *object* to be manifested. I resonate more with Heidegger’s description of art making and *poiesis*: 
 
 > **“Art is the becoming and happening of Truth”.** 
 
-Art discloses new worlds not yet known -- it is the creative process of bringing forth truth into being. So for me, true creation is a **transforming encounter** between artwork and the artist. 
+Art discloses new worlds not yet known -- it is the creative process of bringing forth truth into being. So for me, true creation is a **transforming encounter, a dance** between artwork and the artist. 
 
-The journey I take with this Self-Directed Masters has no clear destination or end point. Perhaps it will end in March, or perhaps it will last a lifetime. I can imagine, perhaps, a constellation of artefacts, of Truths, that might emerge from this inquiry. But what I’m committed to is the intention, not the output, and to follow the current of how it transforms and changes me. 
+The journey I take with this Self-Directed Masters has no clear destination or end point. Perhaps it will end in March, or perhaps it will last a lifetime. I can imagine, perhaps, a constellation of artefacts, of Truths, that might emerge from this inquiry. But what I’m committed to is the vibe, not the output, and to follow the current of how it transforms and changes me. 
 
-I remember adrienne maree brown's description about "Shaping Change" in [Emergent Strategy](https://www.akpress.org/emergentstrategy.html) (one of my sacred texts). While we surrender ourselves to the never-ending process of change and the fact that nothing lasts, all will fall apart, and we will all return to dust -- we can also choose to love, and to create, and to care in the face of the Great Mystery. This is the Leap that comes with Surrender. 
+**So here, I'll redefine my new years intention as*** **a** **vibe.*** I want to better tune into and follow what I vibe with. Because vibrations-- the ones that I notice in my body -- are closest to what feels like truth, and there are ones that make me want to leap and dance. 
+
+I remember adrienne maree brown's description about "Shaping Change" in [Emergent Strategy](https://www.akpress.org/emergentstrategy.html) (one of my sacred texts). While we surrender ourselves to the never-ending process of change and the fact that nothing lasts, all will fall apart, and we will all return to dust -- we can also choose to love, and to create, and to care in the face of the Great Mystery. This is the *Leap* that comes with Surrender. 
 
 From courage and love, I commit to Shaping Change and Creating beautiful new worlds. Even if these new worlds are as gossamer and temporary as the waves that return to the ocean.
 
