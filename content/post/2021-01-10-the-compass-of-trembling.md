@@ -2,7 +2,7 @@
 title: The Compass of Trembling (New Year Intentions Part 2)
 date: 2021-01-10T21:10:09.028Z
 ---
-I’ve been using the tool [Year Compass](https://yearcompass.com/) to reflect on my 2020. It’s been a useful container for the past four years for summarizing, asking good questions for picking up the surprising and resonant threads. 
+I’ve been using the tool [Year Compass](https://yearcompass.com/) to reflect on my 2020. Over the past four years, it’s been a useful container for summarizing, for picking up surprising and resonant threads. 
 
 Year Compass also has a section dedicated to looking at the Year Ahead, and I noticed in myself a nagging resistance in committing to any concrete achievements, goals or resolutions. This was strange for me: While I’m not into goal-achieving, I take a lot of pleasure in the exercise of [goal-setting](https://cherylhsu.ca/post/2021-01-06-shaping-change-and-creating-new-worlds/). Then I was writing to my Spiritual Innovation Sangha in response to an email that Peter sent about the foreboding synchronicity of his two I-Ching divination readings: 
 
