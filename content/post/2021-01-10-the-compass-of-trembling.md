@@ -1,5 +1,5 @@
 ---
-title: The Compass of Trembling
+title: The Compass of Trembling (New Year Intentions Part 2)
 date: 2021-01-10T21:10:09.028Z
 ---
 I’ve been using the tool [Year Compass](https://yearcompass.com/) to reflect on my 2020. It’s been a useful container for the past four years for summarizing, asking good questions for picking up the surprising and resonant threads. 
