@@ -18,7 +18,7 @@ Reading his email really resonated. And I wrote the following in response: 
 >
 > This seems like critical but humbling, ego-dissolving work -- requiring me to let go of deeply buried attachments to service the collective. But there is something also beautiful about letting my wave dissolve into the ocean. 
 
-Three days later, the Capital was stormed, and we witnessed what to many felt like the shocking desecration of a sacred symbol of Western democracy. 
+Three days later, the Capitol was stormed, and we witnessed what to many felt like the shocking desecration of a sacred symbol of Western democracy. 
 
 So here is the part where the obvious must be said: It’s 2021, and the world is still ending. We're in a **liminal space** (or what Charles Eisentain pithily describes as “[space between stories](https://charleseisenstein.org/courses/space-between-stories/).)
 
