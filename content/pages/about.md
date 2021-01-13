@@ -11,4 +11,4 @@ I’ve called it “self-directed masters” as a pithy way of naming a sovereig
 
 As a designer, I seek to create spaces for collective emergence. In order to do so, I believe that we have to find ways to hospice with tenderness what needs to collapse and die, so that it may compost into potential for new life. 
 
-I also believe that we can have a joyful, sensual relationship with Mystery -- and we can discover wonder in the way that the Unknown makes our hearts race, and our bodies tremble. Perhaps this is a vibe we can all tune into. This might be how we dance with potentialities that are greater than we can possibly imagine.
+I also believe that we can have a joyful, sensual relationship with Mystery -- and we can embrace *wonder* and awe in how the Unknown makes our hearts race, and our bodies tremble. Perhaps this is a vibe we can all tune into. This might be how we dance with potentialities that are greater than we can possibly imagine.
