@@ -44,13 +44,11 @@ We commit on another date to meet again, before the deadline. We will share back
 
 Bayo Akomolafe tells us, “the heart of making sanctuary is inquiry.” But who is the researcher, who is the inquirer? Thinking is not exclusively human, so how does the world, the more-than-human, inquire of us? Shake us? Move us? 
 
-
-
 \----
 
 I procrastinate on the exercise over the Holidays, so I wake up early at 6:30AM on the morning of our third meeting and read two articles in bed: 
 
-1)A National Geographic article about the discovery of [Bakhita](https://www.nationalgeographicbrasil.com/historia/2018/11/bakhita-cemiterio-pretos-novos-cais-do-valongo-arqueologia-escravidao)’s bones in the Cemitério dos Pretos Novos in Rio de Janeiro: 
+1. A National Geographic article about the discovery of [Bakhita](https://www.nationalgeographicbrasil.com/historia/2018/11/bakhita-cemiterio-pretos-novos-cais-do-valongo-arqueologia-escravidao)’s bones in the Cemitério dos Pretos Novos in Rio de Janeiro: 
 
 > “Unlike other remains found at the site - largely fragmented and reduced to small pieces - Bakhita's skeleton remains almost intact, its features recognizable. Bakhita is real physical evidence of the black holocaust caused by the slave trade in Brazil.” 
 
@@ -89,8 +87,6 @@ Truth, I realize, is what cracks me open. 
 ![](/images/screen-shot-2020-12-27-at-8.57.34-am.png)
 
 ![](https://lh4.googleusercontent.com/lLf7rly-wVel1f_39W6VAj9s1unJ3w-s-JenuV_KW0qIsLkOYiGcEi6VLKERa0kM2SFsmF95pDH9ljtvkDr2wjBuMhbdp2gnuSqQjqlqby856pD1ioNRm_IriT01zYq0P_quWJqr)![](/images/screen-shot-2020-12-27-at-8.57.02-am.png)
-
-
 
 # The Ship (The Container)
 
@@ -169,8 +165,6 @@ ocean, not boat\
 human, not slave
 
 not forgotten
-
-
 
 \-
 
