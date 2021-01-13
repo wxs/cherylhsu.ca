@@ -1,5 +1,5 @@
 ---
-title: swaying, swaying [rebuilding the slave ship]
+title: rebuilding the slave ship
 date: 2021-01-13T15:29:41.035Z
 ---
 \-
