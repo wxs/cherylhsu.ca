@@ -26,7 +26,7 @@ Since that period in my life, I’ve kept the vulnerability of “Art” in the 
 
 **One of the strange consequences of not creating and non-attachment was I fell out of practice with *knowing* what I truly wanted.** I began to lose touch with my *inner voice*, and it was increasingly difficult for me to know who I wanted to become, and the kinds of futures I wanted to be in service of designing and creating. 
 
-Starting this [Self-Directed Masters](https://cherylhsu.ca/post/2020-11-06-commitment-to-calling/) two months ago was a starting point in giving me permission to reconnect with this inner voice -- my soul’s calling. **My commitment to resourcing this space of my Self-Directed masters -- with my presence, time, energy, and dedication to showing, even when I’m not inspired -- is how I choose to change the riverbed of where the water flows.** 
+Starting this [Self-Directed Masters](https://cherylhsu.ca/post/2020-11-06-commitment-to-calling/) two months ago was a starting point in giving me permission to reconnect with this inner voice -- my soul’s calling. **My commitment to resourcing this space of my Self-Directed masters -- with my presence, time, energy, and dedication to showing up, even when I’m not inspired -- is how I choose to change the riverbed of where the water flows.** 
 
 However, I still disagree with Robert’s idea that you have to know exactly what you want in order to create it. That requires to see the artwork -- the *future* --  as an *object* to be manifested. I resonate more with Heidegger’s description of art making and *poiesis*: 
 
