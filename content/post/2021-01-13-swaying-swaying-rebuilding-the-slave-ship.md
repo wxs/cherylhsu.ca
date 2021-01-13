@@ -84,7 +84,7 @@ Truth, I realize, is what cracks me open. 
 
 # The Flesh 
 
-![](/images/screen-shot-2020-12-27-at-8.57.34-am.png)
+![]()
 
 ![](https://lh4.googleusercontent.com/lLf7rly-wVel1f_39W6VAj9s1unJ3w-s-JenuV_KW0qIsLkOYiGcEi6VLKERa0kM2SFsmF95pDH9ljtvkDr2wjBuMhbdp2gnuSqQjqlqby856pD1ioNRm_IriT01zYq0P_quWJqr)![](/images/screen-shot-2020-12-27-at-8.57.02-am.png)
 
