@@ -14,7 +14,7 @@ All this entangles with the Eastern wisdoms, relating to the Buddhist concept of
 
 > “All things that are in the world are linked together, one way or the other. **Not a single thing comes into being without some relationship to every other thing.”** 
 
-These ways of thinking and becoming radically challenges the tenets of human exceptionalism and Western hyper-individualism in which I am encultured, where the basis of my actions is sourced from this egoic belief that “I am sovereign, independent agent.” Of course, self-sovereignty is critical. Sovereignty relates to one’s capacity to relate to, make sense of, and conscious choices in the world. I aspire towards the conditions (e.g. meeting the satisfiers of [Max-Neef](https://en.wikipedia.org/wiki/Manfred_Max-Neef%27s_Fundamental_human_needs)’s fundamental needs) that enable my independent and discerning choice-making as an expression of my *existential freedom* -- to make meaning in a groundless world. When we advocate for the indigenous sovereignty, or community food sovereignty, it relates to a community’s power and capacity to make self-determining, self-actuating decisions around how they choose to live in the world -- in its teaming plural diversity! 
+These ways of thinking and becoming radically challenges the tenets of human exceptionalism and Western hyper-individualism in which I am encultured, where the basis of my actions is sourced from this egoic belief that “I am sovereign, independent agent.” Of course, self-sovereignty is critical. Sovereignty relates to one’s capacity to relate to, make sense of, and enact conscious choices in the world. I aspire towards the conditions (e.g. meeting the satisfiers of [Max-Neef](https://en.wikipedia.org/wiki/Manfred_Max-Neef%27s_Fundamental_human_needs)’s fundamental needs) that enable my independent and discerning choice-making as an expression of my *existential freedom* -- to make meaning in a groundless world. When we advocate for the indigenous sovereignty, or community food sovereignty, it relates to a community’s power and capacity to make self-determining, self-actuating decisions around how they choose to live in the world -- in its teaming plural diversity! 
 
 But thrown into the chaotic world of interdependence, I am also not in control of my destiny.  No matter how attached I am to a specific outcome, chaos prevails… but perhaps with an [implicate order](https://en.wikipedia.org/wiki/Implicate_and_explicate_order), the mysterious evolution of strange attractors, that is beyond my prediction and knowing. 
 
@@ -22,12 +22,9 @@ But thrown into the chaotic world of interdependence, I am also not in control o
 
 I am not alone. 
 
---- 
+\--- 
 
 &nbsp;
-
-
-
 
 # **Act, when moved** 
 
