@@ -53,3 +53,5 @@ The philosopher Paul Tillich wrote about the tension between **Power**, which he
 I sense that we’re at a critical choice point: do I follow the absencing onslaught of a media cycle that reinforces and profits off fear, separation, scarcity, shame, and *holding back*?  Or do I follow this deep primordial hunger in my body towards sympoiesis, towards making-together more enlivening ways of becoming? Because when I do, my whole self feels abundant and fulfilled -- and it invites me to be generously involved with people and the  more-than-human. How do we design towards this simple, elegant step of taking a deep breath and taking a Leap of Faith into the mysterious current, the Implicate Order, of the Tao? 
 
 Tillich also describes **justice** as “the form in which and through which love performs its work”. Perhaps a pathway towards creative justice is the distributive capacity for everyone to be self-sovereign, so that they might choose to give it up, and make an empowered leap towards Love.
+
+{{< youtube Aki1Xn36eJ8 >}}
