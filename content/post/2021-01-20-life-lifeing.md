@@ -59,4 +59,7 @@ I sense that we’re at a critical choice point: do I follow the absencing onsla
 
 Tillich also describes **justice** as “the form in which and through which love performs its work”. Perhaps a pathway towards creative justice is the distributive capacity for everyone to be self-sovereign, so that they might choose to give it up, and make an empowered leap towards Love.
 
+&nbsp;
+&nbsp;
+
 {{< youtube Aki1Xn36eJ8 >}}
