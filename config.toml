@@ -15,9 +15,24 @@ profilePicture = "images/shob.jpg"
   mainSections = ["post"]
 
 [[params.socialIcons]]
-icon = "fab fa-twitter"
+icon = "fad-custom fad-twitter"
 title = "Twitter"
 url = "https://twitter.com/cherylshoe"
+
+[[params.socialIcons]]
+icon = "fad-custom fad-arena"
+title = "Arena"
+url = "https://www.are.na/cheryl-shoe"
+
+[[params.socialIcons]]
+icon = "fad-custom fad-fad"
+title = "Folie a Deux"
+url = "https://folieadeux.ca"
+
+[[params.socialIcons]]
+icon = "fad-custom fad-email"
+title = "Email"
+url = "mailto:cherylhsu88@gmail.com"
 
 [menu]
 
@@ -38,4 +53,3 @@ url = "https://twitter.com/cherylshoe"
   weight = 300
   identifier = "about"
   url = "/pages/about/"
-
