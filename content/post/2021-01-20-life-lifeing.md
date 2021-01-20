@@ -24,6 +24,11 @@ I am not alone. 
 
 \-- 
 
+&nbsp;
+
+
+
+
 # **Act, when moved** 
 
 Gregory Bateson and Nora Bateson have this concept of *schismogenesis*, which literally means “creation of division.” It relates to destructive patterns of behaviour in social dynamics such as **systems hold-back**: “mutually aggregating spirals which lead people to hold back contributions they could make because others hold back contributions they could make." I’m not going to give what I believe I can give because I don’t believe that others will give what they can give. 
