@@ -105,7 +105,7 @@ We have the opportunity to redesign and build new systems that dissolve a noxiou
 
 **So how do we reclaim deep, life-affirming pleasure in how we might live with the trouble, and unfold with the mystery of our wicked meta-crises?** 
 
-Life is short. Let us not continue the endless cycle of escaping to a utopian destination, but root ourselves sensually to the present. Let us take slow, indulgent time to get our hands dirty in the soil, cultivating the beautiful possibilities that grow from the earth that we stand on. 
+Life is short. Let us not continue the endless cycle of escaping to utopian destinations, but root ourselves sensually to the present. Let us take slow, indulgent time to get our hands dirty in the soil, cultivating the beautiful possibilities that grow from the earth that we stand on. 
 
 What is pleasurable is sustainable. Pleasure is regenerative. 
 
