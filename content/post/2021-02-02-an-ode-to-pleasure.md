@@ -103,7 +103,7 @@ We have the opportunity to redesign and build new systems that dissolve a noxiou
 
 Life is short. Let us not continue the endless cycle of escaping to a utopian destination, but root ourselves sensually to the present. Let us take slow, indulgent time to get our hands dirty in the soil, cultivating the beautiful possibilities that grow from the earth that we stand on. 
 
-**What is pleasurable is sustainable. Pleasure is regenerative.** 
+What is pleasurable is sustainable. Pleasure is regenerative. 
 
 So in sinking into the hot, steaming bath of this “Ode to Pleasure”, I wash away the shame or guilt that clings onto it(Okay, maybe I’m still a bit embarrassed writing this; but if I have to be totally honest, there is pleasure to be found in the tingle of embarrassment ;) ). As adrienne maree brown says: *“Pleasure activism is us learning to make justice and liberation the most pleasurable experiences we can have on this planet.”* 
 
