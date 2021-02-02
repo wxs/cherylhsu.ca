@@ -12,7 +12,7 @@ The Enneagram aligns each of its nine archetypes with a core fear and desire: **
 
 More recently, I came across the Gene Key test, which integrates some combination of the I-Ching and Astrology into an intricate profiling of my underlying “genetic patterns and beliefs” (Side note: I’ll avoid using the term pseudoscience but I get a little annoyed about the liberal use of scientific terminology). The results are based on birth time and location, but yielded similar results as the personality test: my deepest Purpose in life is to transform the Shadow of Desire in order to manifest the Gift of Lightness. The highest vibration or fullest realization of this purpose -- what they call the *siddhi* --  is ***Rapture.*** 
 
-*Oh.*** *Rapture.*** A word denoting intense pleasure, ecstasy and passion. It definitely makes me blush. 
+\*Oh.**\* *Rapture.*** A word denoting intense pleasure, ecstasy and passion. It definitely makes me blush. 
 
 I know I’m not alone in the light embarrassment around celebrating pleasure and sensuality. Besides with the few fiercely sex-positive friends, and the disappointingly apolitical affirmation of #selfcare, pleasure rarely comes up at dinner table conversations or zoom calls.  Perhaps the current of my shame runs deeper due to Catholic guilt and Chinese prudishness in my childhood upbringing, but it’s also part of being raised in a Euro-patriarchal society that undervalues or hides away the embodied yin of reception and sensuality. 
 
@@ -52,9 +52,8 @@ In her book *Pleasure Activism,* adrienne maree brown reclaims pleasure as radic
 
 When I fully own what “it feels right to me”,  I enthusiastically drink in experience in ways that are present, embodied, and sensual. **I become enraptured by life.** 
 
-
-
-
+&nbsp;
+&nbsp;
 
 ## **Following pleasure towards systems transformation** 
 
@@ -72,9 +71,10 @@ With my heart rate racing and my body trembling in the dark, there is something 
 
 This life-affirming pleasure is what I follow. *This feels right to me.* 
 
+&nbsp;
+&nbsp;
 
-
-## **Designing in the wild** 
+## **Designing in the Wild** 
 
 What drives us to design what we design, or create what we create? We can motivate change through guilt, shame, and obligation, through the exhausting weight of the innumerable critiques of what is broken in our complex systems. We can sit in rooms mapping out all the problems, innovating around what we “ought” to do in systems change. Trudge along in circles, repair the cracks. 
 
@@ -84,9 +84,10 @@ Uh oh, it looks out we’re addicting people. Uh oh, it turns out we’re deepen
 
 **I want OFF this gleaming treadmill! Let us run in the wild!** 
 
+&nbsp;
+&nbsp;
 
-
-## **The rapture of aliveness**
+## **The Rapture of Aliveness**
 
 Last week, I was at a [Collective Presencing](https://www.collectivepresencing.org/) book club meeting centred around the question: **What is worthy of “taking a leap”? What becomes possible when we all choose to follow our life’s purpose?**  
 
@@ -108,4 +109,6 @@ Life is short. Let us not continue the endless cycle of escaping to a utopian de
 
 So in sinking into the hot, steaming bath of this “Ode to Pleasure”, I wash away the shame or guilt that clings onto it(Okay, maybe I’m still a bit embarrassed writing this; but if I have to be totally honest, there is pleasure to be found in the tingle of embarrassment ;) ). As adrienne maree brown says: *“Pleasure activism is us learning to make justice and liberation the most pleasurable experiences we can have on this planet.”* 
 
-Rather than seeking heaven after death, let us create together rapturous lives and deaths on this beautiful, damaged planet.
+&nbsp;
+
+**Rather than seeking heaven after death, let us create together rapturous lives and deaths on this beautiful, damaged planet.**
