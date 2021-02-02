@@ -2,7 +2,7 @@
 title: An Ode to Pleasure
 date: 2021-02-02T14:54:33.585Z
 ---
-The muse of Pleasure is dancing around me. There has been precious synchronicity with how it’s been unravelling and reweaving me in this Self-Directed Masters, so I will unpack it slowly and indulgently -- allow this pleasure to suffuse my life and relationships, and deepen into an ethos guiding personal and systems transformation. 
+*The muse of **Pleasure** is dancing around me.* There has been precious synchronicity with how it’s been unravelling and reweaving me in this Self-Directed Masters, so I will unpack it slowly and indulgently -- allow this pleasure to suffuse my life and relationships, and deepen into an ethos guiding personal and systems transformation. 
 
 I’ll begin in a fun space that gives me a lot of pleasure --  **personality tests!** It’s mostly a private (and I used to think, embarrassing) indulgence. Doing personality tests and basking in what is revealed is not dissimilar to taking a really spicy selfie, or sinking into a hot, steaming bath. One of my favourite tests is Enneagram. I’ve probably done the test 10 times and I always get **Archetype Number 7: the Epicure/Enthusiast**. Mostly, it’s very on point; I love to play, laugh, and take intense enjoyment in everything that life has to offer: *“Sevens are enthusiastic about almost everything that catches their attention. They approach life with curiosity, optimism, and a sense of adventure, like “kids in a candy store” who look at the world in wide-eyed, rapt anticipation of all the good things they are about to experience.”*  
 
@@ -106,6 +106,5 @@ Life is short. Let us not continue the endless cycle of escaping to a utopian de
 **What is pleasurable is sustainable. Pleasure is regenerative.** 
 
 So in sinking into the hot, steaming bath of this “Ode to Pleasure”, I wash away the shame or guilt that clings onto it(Okay, maybe I’m still a bit embarrassed writing this; but if I have to be totally honest, there is pleasure to be found in the tingle of embarrassment ;) ). As adrienne maree brown says: *“Pleasure activism is us learning to make justice and liberation the most pleasurable experiences we can have on this planet.”* 
-
 
 **Rather than seeking heaven after death, let us create together rapturous lives and deaths on this beautiful, damaged planet.**
