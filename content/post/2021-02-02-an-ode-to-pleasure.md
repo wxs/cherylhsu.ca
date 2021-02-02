@@ -55,7 +55,7 @@ When I fully own what “it feels right to me”,  I enthusiastically drink in 
 &nbsp;
 &nbsp;
 
-## **Following pleasure towards systems transformation** 
+## **Rapture in Rupture** 
 
 When the pandemic was globally announced in March 2020, it was a staggering moment of rupture. Everything that was “normal” and taken for granted -- our scripts, our patterns, our expectations -- collapsed into the anxious abyss of Not Knowing. 
 
@@ -87,7 +87,7 @@ Uh oh, it looks out we’re addicting people. Uh oh, it turns out we’re deepen
 &nbsp;
 &nbsp;
 
-## **The Rapture of Aliveness**
+## **Following pleasure towards systems transformation** 
 
 Last week, I was at a [Collective Presencing](https://www.collectivepresencing.org/) book club meeting centred around the question: **What is worthy of “taking a leap”? What becomes possible when we all choose to follow our life’s purpose?**  
 
