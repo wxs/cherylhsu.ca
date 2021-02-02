@@ -12,7 +12,7 @@ The Enneagram aligns each of its nine archetypes with a core fear and desire: **
 
 More recently, I came across the Gene Key test, which integrates some combination of the I-Ching and Astrology into an intricate profiling of my underlying “genetic patterns and beliefs” (Side note: I’ll avoid using the term pseudoscience but I get a little annoyed about the liberal use of scientific terminology). The results are based on birth time and location, but yielded similar results as the personality test: my deepest Purpose in life is to transform the Shadow of Desire in order to manifest the Gift of Lightness. The highest vibration or fullest realization of this purpose -- what they call the *siddhi* --  is ***Rapture.*** 
 
-*Oh.*** *Rapture.*** A word denoting intense pleasure, ecstasy and passion. I'm blushing.
+*Oh. **Rapture.*** A word denoting intense pleasure, ecstasy and passion. I'm blushing.
 
 I know I’m not alone in sensing embarrassment around the celebration of pleasure and sensuality. Besides the few fiercely sex-positive friends, and the disappointingly apolitical affirmation of #selfcare, pleasure rarely comes up at dinner table conversations or zoom calls.  Perhaps the current of my shame runs deeper due to Catholic guilt and Chinese prudishness in my childhood upbringing, but it’s also part of being raised in a Euro-patriarchal society that undervalues or hides away the embodied yin of reception and sensuality. 
 
