@@ -109,6 +109,6 @@ Life is short. Let us not continue the endless cycle of escaping to a utopian de
 
 What is pleasurable is sustainable. Pleasure is regenerative. 
 
-So in sinking into the hot, steaming bath of this “Ode to Pleasure”, I wash away the shame or guilt that clings onto it(Okay, maybe I’m still a bit embarrassed writing this; but if I have to be totally honest, there is pleasure to be found in the tingle of embarrassment ;) ). As adrienne maree brown says: *“Pleasure activism is us learning to make justice and liberation the most pleasurable experiences we can have on this planet.”* 
+By sinking into the hot, steaming bath of this “Ode to Pleasure”, I wash away the shame or guilt that clings onto it (well maybe I’m still embarrassed writing this; but if I have to be totally honest, there is tingles pleasure to be found in embarrassment ;) ). As adrienne maree brown says: *“Pleasure activism is us learning to make justice and liberation the most pleasurable experiences we can have on this planet.”* 
 
 **Rather than seeking heaven after death, let us create together rapturous lives and deaths on this beautiful, damaged planet.**
