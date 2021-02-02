@@ -2,7 +2,9 @@
 title: An Ode to Pleasure
 date: 2021-02-02T14:54:33.585Z
 ---
-*The muse of **Pleasure** is dancing around me.* There has been precious synchronicity with how it’s been unravelling and reweaving me in this Self-Directed Masters, so I will unpack it slowly and indulgently -- allow this pleasure to suffuse my life and relationships, and deepen into an ethos guiding personal and systems transformation. 
+*The muse of **Pleasure** is dancing around me.* 
+
+There has been precious synchronicity with how it’s been unravelling and reweaving me in this Self-Directed Masters, so I will unpack it slowly and indulgently -- allow this pleasure to suffuse my life and relationships, and deepen into an ethos guiding personal and systems transformation. 
 
 I’ll begin in a space that brings me a lot of lightness and pleasure --  **personality tests.** It’s usually a private indulgence (like taking a really spicy selfie) but I'll allow myself to be embarrassed and share it here.  
 
