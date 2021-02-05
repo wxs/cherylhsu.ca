@@ -14,6 +14,6 @@ What I can say is that from September to January, I gave myself permission to be
 
 The well is a two-way channel, and I’m beginning to accept and befriend the beautiful monstrosities that are trickling out. There is a sense of something new bubbling forth, but it is mysterious and I want to be surprised. I may write differently, more often, or not write at all. Maybe it’s time for me to paint and draw instead, dance, be silent, run outside all day and all night, and sleep under the stars. On certain days with chosen people, the world may turn upside down and the well will become a waterfall. 
 
-I have a hunger to be witnessed through. I am not a solitary creature. And I’m seeking for more than witnesses -- but co-conspirators and partners-in-crime who want to dance in the liminal space in-between the veil and what lies behind it. 
+I have a hunger to be witnessed though. I am not a solitary creature. And I’m seeking for more than witnesses -- but co-conspirators and partners-in-crime who want to dance in the liminal space in-between the veil and what lies behind it. 
 
 Dear friend, if you’ve stumbled onto this sacred space that I’ve hidden away in plain sight, I have invited you, with trembling anticipation, to dance with me.
