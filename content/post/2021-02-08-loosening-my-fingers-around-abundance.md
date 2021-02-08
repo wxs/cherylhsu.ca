@@ -2,7 +2,9 @@
 title: "loosening my fingers around abundance "
 date: 2021-02-08T14:38:43.595Z
 ---
-I’m in a love affair with life right now and she’s giving me much to muse upon. The abundance of the love affair is also making me feel strangely bloated and impatient -- I have about six different pieces of writing that I’ve started that I want to finish, and I sense this weird[ pressure](https://cherylhsu.ca/post/2020-11-13-under-pressure/) to metabolize all of the fullness inside of me before she leaves me. 
+I’m in a love affair with life right now and she’s giving me much to muse upon. 
+
+The abundance of the love affair is also making me feel strangely bloated and impatient -- I have about six different pieces of writing that I’ve started that I want to finish, and I sense this weird[ pressure](https://cherylhsu.ca/post/2020-11-13-under-pressure/) to metabolize all of the fullness inside of me before she leaves me. 
 
 Before she leaves me...?
 
@@ -45,8 +47,6 @@ You take care and are taken care of. You love and you are loved. You heal and yo
 > ― Robin Wall Kimmerer, Braiding Sweetgrass: Indigenous Wisdom, Scientific Knowledge, and the Teachings of Plants
 
 So let us drink in and bask in the blissful abundance of this receiving, just for a small moment. 
-
-
 
 \--- 
 
