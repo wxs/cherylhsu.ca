@@ -22,7 +22,7 @@ Okay, clenching up again. Let’s slow down, close our eyes for a moment. I brea
 
 In these pauses where I let my body expand -- I notice that I’m receiving this air, receiving this sun -- all for free. I have always been receiving so much, since the moment I was born. Yet why is the practice of recognizing and acknowledging reception so hard? 
 
-I grew up with a shrine to Independence in my my bank account, working jobs in high school and university because I believed that success meant self-sufficiency. I wanted to become socially, emotionally, physically, financially sovereign enough to be able to magnanimously help and support others. Yet receiving help? I sense the tightening in my chest: reluctance. 
+I grew up with a shrine to Independence in my bank account, working jobs in high school and university because I believed that success meant self-sufficiency. I wanted to become socially, emotionally, physically, financially sovereign enough to be able to magnanimously help and support others. Yet receiving help? I sense the tightening in my chest: reluctance. 
 
 The art of receiving is frowned upon in the paradigm of Neoliberal Independence, enshrined with the core values of self-sovereignty, individual autonomy and freedom. The position of needing or asking for help is correlated with weakness or helplessness -- if you can’t take care of yourself or your family, you have to rely on government handouts, social welfare and charity. Shame! 
 
