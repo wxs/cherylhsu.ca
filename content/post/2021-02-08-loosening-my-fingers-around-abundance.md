@@ -14,13 +14,13 @@ My hands will never be able to contain the ocean, but I can pour my whole body i
 
 This undulating relationship between holding and releasing, receiving and giving is a part of the fluid reciprocity between the myself and the larger body,  the drop of water in the ocean, the particle and the wave, the in and out of the same breath. I [shared](https://cherylhsu.ca/post/2021-01-20-life-lifeing/) Nora Bateson’s definition of **generosity,** where giving within a radically entangled system is closer to a heart pumping blood to a toe, rather than the altruism of a benevolent philanthropist. The heart moves blood to the toe through the fractal branching of blood vessels through the larger body -- the blood is not being “shared”, it is not transactional -- this is mutualistic symbiosis. I give and I receive, because I am contained in the entanglement of a larger body. 
 
-Why do we focus our energies and desires so much on containing and holding  -- the love of another person, my great ideas, toilet paper in the pandemic, the savings in a bank account? I create walls and boundaries -- sealing all the cracks between my fingers -- so that I can hold everything I’ve earned and deserve through my depth, my hard work, my networks, my cleverness. 
+Why do we focus our energies and desires so much on containing and holding my perfect ideas, the precious love of another person, toilet paper in the pandemic, the savings in a bank account? I create walls and boundaries -- sealing all the cracks between my fingers -- so that I can hold everything I’ve earned and deserve through *my* depth, *my* hard work, *my* networks, *my* cleverness. 
 
 I’m still in the process of unlearning the wiley scarcity built inside of me.
 
 Okay, clenching up again. Let’s slow down, close our eyes for a moment. I breathe in sweet air and let it expand the lungs, notice the sun gently warming my face. *Release.* 
 
-In these pauses where I let my body expand -- I notice that I’m receiving this air, receiving this sun -- all for free. I have always been receiving so much, since the moment I was born. Yet why is the practice of recognizing and acknowledging reception so hard? 
+In these pauses where I let my body expand -- I notice that I’m receiving this air, this sun, these ideas and insights -- all for free. I have always been receiving so much, since the moment I was born. Yet why is the practice of recognizing and acknowledging reception so hard? 
 
 I grew up with a shrine to Independence in my bank account, working jobs in high school and university because I believed that success meant self-sufficiency. I wanted to become socially, emotionally, physically, financially sovereign enough to be able to magnanimously help and support others. Yet receiving help? I sense the tightening in my chest: reluctance. 
 
