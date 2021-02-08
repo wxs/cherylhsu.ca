@@ -41,11 +41,11 @@ We are always receiving gifts from nature, whether we acknowledge it or not: the
 
 When I read *Braiding Sweetgrass* by Robin Wall Kimmerer for the first time, I felt this intense, heart-wrenching longing to be in the world of reciprocity that she describes. In this world of abundance, giving and receiving is [life life-ing](https://cherylhsu.ca/post/2021-01-20-life-lifeing/). There is no fanfare in this kind of giving. There is no building named after you. 
 
-You take care and are taken care of. You love and you are loved. You heal and you are healed. You give, and you receive. 
+You take care and are taken care of. You heal and you are healed. You give, and you receive. 
 
-I will no longer try to contain or capture my muse. I write this as a love letter to he instead, drinking in and basking in the blissful abundance of this receiving. 
+I will no longer try to contain or capture my muse. I write this as a love letter to her instead, [light candles around the brimming well](https://cherylhsu.ca/post/2021-02-05-the-second-cycle/), and drink in the blissful abundance of receiving. 
 
-Allow myself to receive and be loved, in this small moment. 
+I'll allow myself to love and be loved, in this small moment. 
 
 \--- 
 
