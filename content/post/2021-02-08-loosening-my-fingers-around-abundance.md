@@ -4,9 +4,9 @@ date: 2021-02-08T14:38:43.595Z
 ---
 I’m in a love affair with life right now and she’s giving me an abundance to muse upon. 
 
-The fullness of the love affair is also making me feel strangely bloated and impatient -- I have about six different pieces of writing that I’ve started that I want to finish, and I sense this weird[ pressure](https://cherylhsu.ca/post/2020-11-13-under-pressure/) to metabolize all of the fullness inside of me before she leaves me. 
+The fullness of the love affair is also making me feel strangely bloated and impatient -- I have about six different pieces of writing that I’ve started that I want to finish, and I sense this weird[ pressure](https://cherylhsu.ca/post/2020-11-13-under-pressure/) to metabolize all of the fullness inside of me *before she leaves me.* 
 
-Before she leaves me...?
+*Before she leaves me...*
 
 I have an image that I return to when I feel this grasping desire to hold and contain all the knowledge, love and magic: **No matter how tightly I cup my hands and press my fingers together, the water will slip through the cracks.** So I close my eyes and let go of this desire to contain. My fingers loosen, and I trail my hands into the well, reverently as though I’m praying. I bring what I can hold to my lips and I drink it in. I can barely catch it all, but what I hold in my mouth and on my tongue is delicious. I let the rest of it drip abundantly down my face, stream back into the source.
 
