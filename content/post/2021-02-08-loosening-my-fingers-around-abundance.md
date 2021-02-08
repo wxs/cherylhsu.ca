@@ -28,7 +28,7 @@ The art of receiving is frowned upon in the paradigm of Neoliberal Independence,
 
 Yet in the hidden architectures of how we live together, we are constantly drinking from systems that many disparage, despise and fight to defund (if they can even see them). We drive on roads that are paved by public infrastructure, we pour water from our taps through public utilities. I feel liberated to go skating on an ice rink in a public park, because even if I know that I might fall and break an arm, I am a call away from a Canadian health care system that will take care of me without bankrupting me. These systems of course, are so far from perfect, but they provide the robust, invisible infrastructures of support that -- like the elaborate branching of the vascular system in our bodies -- have been circulating what is needed in the Collective Body to survive and thrive. 
 
-Our reluctance to receive is hard-coded with the fear of owe-ing -- taxes, costs, favours, labour. But owing is only hard-coded within conditions of scarcity -- when there isn’t enough. **Not enough** is a story we need to heal from, because it makes it want to reinforce our walls, harden the boundaries, tighten the fists and guard the heart. This is a profoundly lonely condition.  
+Our reluctance to receive is hard-coded with the fear of owe-ing -- taxes, costs, favours, labour. But owing is only hard-coded within conditions of scarcity -- when there isn’t enough. **Not enough** is a story we need to heal from, because it makes us want to reinforce our walls, harden the boundaries, tighten the fists and guard the heart. This is a profoundly lonely condition.  
 
 Robin Wall Kimmerer has described this isolation as **species loneliness**: 
 
