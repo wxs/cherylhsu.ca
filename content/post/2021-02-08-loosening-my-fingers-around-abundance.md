@@ -43,10 +43,9 @@ When I read *Braiding Sweetgrass* by Robin Wall Kimmerer for the first time, I f
 
 You take care and are taken care of. You love and you are loved. You heal and you are healed. You give, and you receive. 
 
-> *“Action on behalf of life transforms. Because the relationship between self and the world is reciprocal, it is not a question of first getting enlightened or saved and then acting. As we work to heal the earth, the earth heals us.”* \
-> ― Robin Wall Kimmerer, Braiding Sweetgrass: Indigenous Wisdom, Scientific Knowledge, and the Teachings of Plants
+I will no longer try to contain or capture my muse. I write this as a love letter to he instead, drinking in and basking in the blissful abundance of this receiving. 
 
-So let us drink in and bask in the blissful abundance of this receiving, just for a small moment. 
+Allow myself to receive and be loved, in this small moment. 
 
 \--- 
 
