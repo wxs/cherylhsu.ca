@@ -8,7 +8,7 @@ The fullness of the love affair is also making me feel strangely bloated and imp
 
 *Before she leaves me...*
 
-I have an image that I return to when I feel this grasping desire to hold and contain all the knowledge, love and magic: **No matter how tightly I cup my hands and press my fingers together, the water will slip through the cracks.** So I close my eyes and let go of this desire to contain. My fingers loosen, and I trail my hands into the well, reverently as though I’m praying. I bring what I can hold to my lips and I drink it in. I can barely catch it all, but what I hold in my mouth and on my tongue is delicious. I let the rest of it drip abundantly down my face, stream in rivulets back into the source.
+I have an image that I return to when I feel this grasping desire to hold and contain all the knowledge, love and magic: **No matter how tightly I cup my hands and press my fingers together, the water will slip through the cracks.** So I close my eyes and let go of this desire to contain. My fingers loosen, and I trail my hands into the well, reverently as though I’m praying. I bring what I can hold to my lips and I drink it in. I can barely catch it all, but what I cradle in my mouth and on my tongue is delicious. I let the rest of it drip abundantly down my face, stream in rivulets back into the source.
 
 My hands will never be able to contain the ocean, but I can pour my whole body into the cool water, and dissolve gloriously into it. I’ll let the current to carry me here. 
 
