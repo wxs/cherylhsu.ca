@@ -1,5 +1,5 @@
 ---
-title: Life Lifeing
+title: "The Sympoiesis of Life Life-ing "
 date: 2021-01-20T16:44:47.556Z
 ---
 I’ve been on a documentary kick lately, watching films from “[The Symbiotic Earth](https://hummingbirdfilms.com/symbioticearth/)” about the biologist Lynn Margulis,  “[Storytelling for Earthly Survival](https://earthlysurvival.org/)” about Donna Haraway, Nora Bateson’s “[An Ecology of the Mind](http://www.anecologyofmind.com/)” about her father, Gregory Bateson, and “[Infinite Potential](https://www.infinitepotential.com/)” about David Bohm. They were all beautiful pieces of the same puzzle, telling stories about the way life and reality relate, evolve, and co-produce in deep, warm, vibrating, [sympoiesis](https://www.google.com/search?q=sympoiesis&oq=sympoe&aqs=chrome.1.69i57j0i10i457j0i10l6.1851j0j4&sourceid=chrome&ie=UTF-8) together. 
@@ -26,7 +26,7 @@ I am not alone. 
 
 &nbsp;
 
-# **Act, when moved** 
+# **Holding back from generosity** 
 
 Gregory Bateson and Nora Bateson have this concept of *schismogenesis*, which literally means “creation of division.” It relates to destructive patterns of behaviour in social dynamics such as **systems hold-back**: “mutually aggregating spirals which lead people to hold back contributions they could make because others hold back contributions they could make." I’m not going to give what I believe I can give because I don’t believe that others will give what they can give. 
 
@@ -43,6 +43,12 @@ Nora Bateson shared in the Stoa session “[Deep Code Dialogues](https://youtu.b
 > **“You talk about virtue, but it’s a very generous integrity. And generous not in the sense of “I’m going to give you one of these because I’ve got four.” But generous on the level of “This is how my heart pumps my blood to my toes.” It’s not one that makes me altruistic. It’s just life making life. It’s just Life Life-ing. And that is a generous process.”**  
 
 I love this invocation of generosity, not as a decision to give something to be kind or to be a “good person”, but as a part of the greater flow of how we collectively make meaning and generate life together. By holding back from being generous, I’m not participating in the sympoiesis of the life force. 
+
+
+
+&nbsp;
+
+# **Act, when moved** 
 
 Last year, I often came back to something that Russell Brand said in a podcast: **“Your authentic self trumps imposter syndrome.”** Hearing these words was like a heavy weight was lifted off my shoulders. I don’t need to sound smart or cool, and pre-destine this script of a “perfect self” that I must follow. I don’t need to worry about the performance of an aspirational ideal of “good Cheryl”. Perhaps we can agonize philosophically over what an “authentic self” even means (a family system of multiple selves, an underlying wise self?) but the Truth of it reveals for me in the *abundance of emptiness*, with the open porous container of how I receive and the implicit faith I place into words that pour out of my mouth, when I don’t know what I’m about to say. 
 
