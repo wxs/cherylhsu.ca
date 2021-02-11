@@ -6,11 +6,9 @@ date: 2021-02-11T15:59:53.123Z
 >
 > \--Bayo Akomolafe 
 
-
-
 Over the weekend, I was with my “around the thing that turns” kin group discussing the shared sense of **fugitivity** that drew us to Bayo Akomolafe and We Will Dance With Mountains. 
 
-I shared that for me, fugitivity points to the experience of **“belonging in un-belonging”** -- the ability to dance through liminal spaces and shape-shift through different identities and paradigms. “This is something you need to develop and mature into”, I said, relating back to when I was a youth and secretly craved a sense of belonging with an “in-crowd”. I became more secure with the fluid and plural teaming of my selfhood as I tucked more years under my belt, slowly and carefully untethering my attachments to "identity” as self-knowledge. 
+I shared that for me, fugitivity points to the experience of **“belonging in not-belonging”** -- the ability to dance through liminal spaces and shape-shift through different identities and paradigms. “This is something you need to develop and mature into”, I said, relating back to when I was a youth and secretly craved a sense of belonging with an “in-crowd”. I became more secure with the fluid and plural teaming of my selfhood as I tucked more years under my belt, slowly and carefully untethering my attachments to "identity” as self-knowledge. 
 
 The person I was speaking with works primarily with children, and she related this sense of developmental fugitivity to **attachment theory**. The development of one’s “maturity” with attachments is significantly influenced by the amount of attention, responsiveness and intimacy you received as an infant from your primary care givers. You also feel more secure and stable if you’ve had a stable childhood, she responded. 
 
@@ -57,9 +55,3 @@ Sacred relationships are scary, because they call upon you to give as much as yo
 > One of the most calming and powerful actions you can do to intervene in a stormy world is to stand up and show your soul. Soul on deck shines like gold in dark times. The light of the soul throws sparks, can send up flares, builds signal fires, causes proper matters to catch fire. To display the lantern of soul in shadowy times like these -- to be fierce and to show mercy toward others; both are acts of immense bravery and greatest necessity. Struggling souls catch light from other souls who are fully lit and willing to show it. If you would help to calm the tumult, this is one of the strongest things you can do.
 >
 > \--Clarissa Pinkola Estes
->
->
->
->
->
->
