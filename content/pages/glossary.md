@@ -10,13 +10,13 @@ date: 2021-02-18T15:17:03.359Z
 
 Given that writing has been a process of unfolding in this Self-Directed Masters, the words and images that I use are often surprising and expected encounters. I’m noticing emergent patterns in how I return to specific ideas --  gossamer threads weaving into a spiders’ webs that are beginning to catch and cradle meaning. Here, my desire is to begin to spin some of these threads into a bridge, so that we might meet in the middle and play. 
 
-Some of my explorations have been exuberantly poetic, in ways that I haven’t allowed or leaned into since I was a teenager nurturing a cringe-ey livejournal. It gives me a lot of personal pleasure and play in the writing process. I love the aesthetic vibe-creation of poetics, and the way it can express the potently ineffable, the thickly ambiguous, and the diaphanous in-betweens that shimmer as tangibly as a veil floating in space. Yet the dark forest is dangerous as much as it is mysterious; Poetics conceal as much as it reveals. But perhaps it is more truthful than anything that purports to be clear, succinct, or simple: we inhabit worlds of complexity and contradictions. 
+Some of my explorations have been exuberantly poetic, in ways that I haven’t allowed or leaned into since I was a teenager nurturing a cringe-ey livejournal. It gives me a lot of personal pleasure and play in the writing process. I love the aesthetic vibe-creation of poetics, and the way it can express the potently ineffable, the thickly ambiguous, and the diaphanous in-betweens that shimmer as tangibly as a veil floating in space. Yet the dark forest is dangerous as much as it is mysterious; Poetics conceal as much as it reveals. But perhaps it is more truthful than anything that purports to be obvious, succinct, or simple: we inhabit worlds of complexity and contradictions. 
 
-So I hold a tension: I believe that it is important to be responsible with my language. I want to honour poetics, and yet I deeply value clear and coherent communication. 
+So I hold a tension: **I believe that it is important to be responsible with my language. I want to honour poetics, and yet I deeply value clear and coherent communication.** 
 
-Below is a working list of definitions of terms I’m using, as an attempt to get more pointy with my poetics. These signifiers are merely “fingers pointing to the moon”: momentary containers to catch something that will inevitably slip through hands. These are also words that house pauses -- pauses to be present, pauses to sense into the tone, texture, flavour of complexity, and pauses to slow down and dream together. 
+Below is a working glossary of terms I’m using, as an attempt to get more pointy with my poetics. These signifiers are merely “fingers pointing to the moon”: momentary containers to catch something that will inevitably slip through hands. These are also words that house pauses -- pauses to be present, pauses to sense into the tone, texture, flavour of complexity, and pauses to slow down and dream together. 
 
-Let us not confuse the finger for the moon nor confuse the map for the territory, yet still, step into the possibility space of the imaginal. 
+Let us not confuse the finger for the moon nor confuse the map for the territory. And yet, let us inhabit these words as temporary launchpads to the possibility space of the imaginal. 
 
 \--
 
@@ -40,16 +40,13 @@ I must also emphasize that the soul is not an individual, separated, or solo ent
 ***A Carrier bag of ideas that I draw upon to reference soul’s calling:*** 
 
 * Rob Burbea and Catherine McGee’s Soul-Making Dharma 
-
-  Ria Baeck’s Collective Presencing 
+* Ria Baeck’s Collective Presencing 
 
 ***Entries where I gesture to soul’s calling:*** 
 
 * [The Lighting of Fugitive Souls ](https://cherylhsu.ca/post/2021-02-11-the-lighting-of-fugitive-souls/)
-
-  [Becoming Strange Attractor ](https://cherylhsu.ca/post/2020-11-18-becoming-strange-attractor/)
-
-  [Commitment to Calling](https://cherylhsu.ca/post/2020-11-06-commitment-to-calling/)
+* [Becoming Strange Attractor ](https://cherylhsu.ca/post/2020-11-18-becoming-strange-attractor/)
+* [Commitment to Calling](https://cherylhsu.ca/post/2020-11-06-commitment-to-calling/)
 
 ## \--
 
@@ -75,8 +72,7 @@ Entangled Sovereignty foregrounds relationality and sympoiesis: no thing makes i
 ***Writing where I gesture to entangled sovereignty:*** 
 
 * [The Sympoeisis of Life Lifeing ](https://cherylhsu.ca/post/2021-01-20-life-lifeing/)
-
-  [The Lighting of Fugitive Souls ](https://cherylhsu.ca/post/2021-02-11-the-lighting-of-fugitive-souls/)
+* [The Lighting of Fugitive Souls ](https://cherylhsu.ca/post/2021-02-11-the-lighting-of-fugitive-souls/)
 
 \--
 
@@ -101,21 +97,28 @@ The simultaneity of surrender and leap is often described as “flow state” an
 ***Writing where I gesture to surrender/leap of faith:*** 
 
 * [Shaping Change by Leaping (Intentions Part 1)](https://cherylhsu.ca/post/2021-01-06-shaping-change-and-creating-new-worlds/ "Shaping Change by Leaping (Intentions Part 1)")
+* [a tiny dance in stillness ](https://cherylhsu.ca/post/2020-12-22-a-tiny-dance-in-stillness/)
 
-  [a tiny dance in stillness ](https://cherylhsu.ca/post/2020-12-22-a-tiny-dance-in-stillness/)
+\-- 
 
 ## **Groundless Ground:** 
 
 ***Other fingers that point in a similar direction:* Emptiness, The Void, Post-modernism**
 
-### **The Great Mystery:** 
+\-- 
+
+## **The Great Mystery:** 
 
 ***Other fingers that point in a similar direction:* Source, Dao, Life, The Divine, God is Change, The Ocean** 
 
-### **Pantheon of Identity**
+\--
+
+## **Pantheon of Identity**
 
 ***Other fingers that point in a similar direction:* Pluralism, Family System, Plural selves, Polytheism, Difference**
 
-### **Strange attractor**
+\--
+
+## **Strange attractor**
 
 ***Other fingers that point in a similar direction:* Emergent patterning**
