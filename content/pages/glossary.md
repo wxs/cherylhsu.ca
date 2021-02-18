@@ -16,7 +16,7 @@ So I hold a tension: **I believe that it is important to be responsible with my 
 
 Below is a working glossary of terms I’m using, as an attempt to get more pointy with my poetics. These signifiers are merely “fingers pointing to the moon”: momentary containers to catch something that will inevitably slip through hands. These are also words that house pauses -- pauses to be present, pauses to sense into the tone, texture, flavour of complexity, and pauses to slow down and dream together. 
 
-Let us not confuse the finger for the moon nor confuse the map for the territory, yet still, step into the possibility space of the imaginal. 
+Let us not confuse the finger for the moon nor confuse the map for the territory. And yet, let us inhabit these words as temporary launchpads to the possibility space of the imaginal. 
 
 \--
 
@@ -99,25 +99,25 @@ The simultaneity of surrender and leap is often described as “flow state” an
 * [Shaping Change by Leaping (Intentions Part 1)](https://cherylhsu.ca/post/2021-01-06-shaping-change-and-creating-new-worlds/ "Shaping Change by Leaping (Intentions Part 1)")
 * [a tiny dance in stillness ](https://cherylhsu.ca/post/2020-12-22-a-tiny-dance-in-stillness/)
 
--- 
+\-- 
 
 ## **Groundless Ground:** 
 
 ***Other fingers that point in a similar direction:* Emptiness, The Void, Post-modernism**
 
--- 
+\-- 
 
 ## **The Great Mystery:** 
 
 ***Other fingers that point in a similar direction:* Source, Dao, Life, The Divine, God is Change, The Ocean** 
 
---
+\--
 
 ## **Pantheon of Identity**
 
 ***Other fingers that point in a similar direction:* Pluralism, Family System, Plural selves, Polytheism, Difference**
 
---
+\--
 
 ## **Strange attractor**
 
