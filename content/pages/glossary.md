@@ -16,7 +16,7 @@ So I hold a tension: **I believe that it is important to be responsible with my 
 
 Below is a working glossary of terms I’m using, as an attempt to get more pointy with my poetics. These signifiers are merely “fingers pointing to the moon”: momentary containers to catch something that will inevitably slip through hands. These are also words that house pauses -- pauses to be present, pauses to sense into the tone, texture, flavour of complexity, and pauses to slow down and dream together. 
 
-Let us not confuse the finger for the moon nor confuse the map for the territory. And yet, let us inhabit these words as temporary launchpads to the possibility space of the imaginal. 
+Let us not confuse the finger for the moon nor confuse the map for the territory. But let us also dance with and inhabit these words as temporary homes of Potential and the Imaginal. 
 
 \--
 
@@ -103,22 +103,40 @@ The simultaneity of surrender and leap is often described as “flow state” an
 
 ## **Groundless Ground:** 
 
-***Other fingers that point in a similar direction:* Emptiness, The Void, Post-modernism**
+***Other fingers that point in a similar direction:* Emptiness, The Void, Post-Modernism**
 
 \-- 
 
 ## **The Great Mystery:** 
 
-***Other fingers that point in a similar direction:* Source, Dao, Life, The Divine, God is Change, The Ocean** 
+***Other fingers that point in a similar direction:* Source, Dao, Life, The Divine, God is Change, The Ocean, The Sacred** 
 
 \--
 
-## **Pantheon of Identity**
+## **Pantheon of Selves** 
 
-***Other fingers that point in a similar direction:* Pluralism, Family System, Plural selves, Polytheism, Difference**
+***Other fingers that point in a similar direction:* Fluid Identity, Pluralism, Family System, Plural selves, Polytheism, Difference**
+
+\--
+
+## **Collective Life-Forming** 
+
+***Other fingers that point in a similar direction:* Memetic Lifeforms, Collective Consciousness, Collective Unconsciousness, Collective Body, Squads, Tribes** 
 
 \--
 
 ## **Strange attractor**
 
-***Other fingers that point in a similar direction:* Emergent patterning**
+***Other fingers that point in a similar direction:* Emergent patterning, Fractal Resonances, Vibes, Emergent vibes** 
+
+\--
+
+## **Compass of Trembling** 
+
+***Other fingers that point in a similar direction:* Embodiment, Soul Nerve and Polyvagal theory, Numinous, Trauma, Awe**
+
+**\--** --
+
+## **The Dark Forest** 
+
+***Other fingers that point in a similar direction:* Mystery, Unknowing, Fugitive, Shadow, Monsters, Ghosts**
