@@ -2,7 +2,7 @@
 title: Glossary
 date: 2021-02-18T15:17:03.359Z
 ---
-# **Pointy Poetics: A House of Emergent Terms** 
+# **Pointy Poetics: A House for Emergent Terms** 
 
 > **“I should say: the house shelters day-dreaming, the house protects the dreamer, the house allows one to dream in peace.”**\
 > \
