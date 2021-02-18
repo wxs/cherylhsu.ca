@@ -53,3 +53,9 @@ url = "mailto:cherylhsu88@gmail.com"
   weight = 300
   identifier = "about"
   url = "/pages/about/"
+
+  [[menu.main]]
+  name = "Glossary"
+  weight = 300
+  identifier = "glossary"
+  url = "/pages/glossary/"

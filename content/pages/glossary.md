@@ -2,7 +2,7 @@
 title: Glossary
 date: 2021-02-18T15:17:03.359Z
 ---
-# **Pointy Poetics: A House for Emergent Terms** 
+# **Pointy Poetics: A House for Emergent Terms**
 
 > **“I should say: the house shelters day-dreaming, the house protects the dreamer, the house allows one to dream in peace.”**\
 > \
@@ -106,7 +106,7 @@ The simultaneity of surrender and leap is often described as “flow state” an
 
 ## **Groundless Ground:** 
 
-***Other fingers that point in a similar direction:* Emptiness, The Void, Post-modernism** 
+***Other fingers that point in a similar direction:* Emptiness, The Void, Post-modernism**
 
 ### **The Great Mystery:** 
 
@@ -114,7 +114,7 @@ The simultaneity of surrender and leap is often described as “flow state” an
 
 ### **Pantheon of Identity**
 
-***Other fingers that point in a similar direction:* Pluralism, Family System, Plural selves, Polytheism, Difference** 
+***Other fingers that point in a similar direction:* Pluralism, Family System, Plural selves, Polytheism, Difference**
 
 ### **Strange attractor**
 
