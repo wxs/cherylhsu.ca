@@ -12,9 +12,9 @@ Given that writing has been a process of unfolding in this Self-Directed Masters
 
 Some of my explorations have been exuberantly poetic, in ways that I haven’t allowed or leaned into since I was a teenager nurturing a cringe-ey livejournal. It gives me a lot of personal pleasure and play in the writing process. I love the aesthetic vibe-creation of poetics, and the way it can express the potently ineffable, the thickly ambiguous, and the diaphanous in-betweens that shimmer as tangibly as a veil floating in space. Yet the dark forest is dangerous as much as it is mysterious; Poetics conceal as much as it reveals. But perhaps it is more truthful than anything that purports to be obvious, succinct, or simple: we inhabit worlds of complexity and contradictions. 
 
-So I hold a tension: I believe that it is important to be responsible with my language. I want to honour poetics, and yet I deeply value clear and coherent communication. 
+So I hold a tension: **I believe that it is important to be responsible with my language. I want to honour poetics, and yet I deeply value clear and coherent communication.** 
 
-Below is a working list of definitions of terms I’m using, as an attempt to get more pointy with my poetics. These signifiers are merely “fingers pointing to the moon”: momentary containers to catch something that will inevitably slip through hands. These are also words that house pauses -- pauses to be present, pauses to sense into the tone, texture, flavour of complexity, and pauses to slow down and dream together. 
+Below is a working glossary of terms I’m using, as an attempt to get more pointy with my poetics. These signifiers are merely “fingers pointing to the moon”: momentary containers to catch something that will inevitably slip through hands. These are also words that house pauses -- pauses to be present, pauses to sense into the tone, texture, flavour of complexity, and pauses to slow down and dream together. 
 
 Let us not confuse the finger for the moon nor confuse the map for the territory, yet still, step into the possibility space of the imaginal. 
 
