@@ -40,15 +40,12 @@ I must also emphasize that the soul is not an individual, separated, or solo ent
 ***A Carrier bag of ideas that I draw upon to reference soul’s calling:*** 
 
 * Rob Burbea and Catherine McGee’s Soul-Making Dharma 
-
 * Ria Baeck’s Collective Presencing 
 
 ***Entries where I gesture to soul’s calling:*** 
 
 * [The Lighting of Fugitive Souls ](https://cherylhsu.ca/post/2021-02-11-the-lighting-of-fugitive-souls/)
-
 * [Becoming Strange Attractor ](https://cherylhsu.ca/post/2020-11-18-becoming-strange-attractor/)
-
 * [Commitment to Calling](https://cherylhsu.ca/post/2020-11-06-commitment-to-calling/)
 
 ## \--
@@ -75,7 +72,6 @@ Entangled Sovereignty foregrounds relationality and sympoiesis: no thing makes i
 ***Writing where I gesture to entangled sovereignty:*** 
 
 * [The Sympoeisis of Life Lifeing ](https://cherylhsu.ca/post/2021-01-20-life-lifeing/)
-
 * [The Lighting of Fugitive Souls ](https://cherylhsu.ca/post/2021-02-11-the-lighting-of-fugitive-souls/)
 
 \--
@@ -101,21 +97,28 @@ The simultaneity of surrender and leap is often described as “flow state” an
 ***Writing where I gesture to surrender/leap of faith:*** 
 
 * [Shaping Change by Leaping (Intentions Part 1)](https://cherylhsu.ca/post/2021-01-06-shaping-change-and-creating-new-worlds/ "Shaping Change by Leaping (Intentions Part 1)")
-
 * [a tiny dance in stillness ](https://cherylhsu.ca/post/2020-12-22-a-tiny-dance-in-stillness/)
+
+-- 
 
 ## **Groundless Ground:** 
 
 ***Other fingers that point in a similar direction:* Emptiness, The Void, Post-modernism**
 
-### **The Great Mystery:** 
+-- 
+
+## **The Great Mystery:** 
 
 ***Other fingers that point in a similar direction:* Source, Dao, Life, The Divine, God is Change, The Ocean** 
 
-### **Pantheon of Identity**
+--
+
+## **Pantheon of Identity**
 
 ***Other fingers that point in a similar direction:* Pluralism, Family System, Plural selves, Polytheism, Difference**
 
-### **Strange attractor**
+--
+
+## **Strange attractor**
 
 ***Other fingers that point in a similar direction:* Emergent patterning**
