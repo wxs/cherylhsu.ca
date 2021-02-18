@@ -2,7 +2,9 @@
 title: "Pointy Poetics: A House of Emergent Terms "
 date: 2021-02-18T15:17:03.359Z
 ---
-> **“I should say: the house shelters day-dreaming, the house protects the dreamer, the house allows one to dream in peace.”― Gaston Bachelard , The Poetics of Space**
+> **“I should say: the house shelters day-dreaming, the house protects the dreamer, the house allows one to dream in peace.”**\
+> \
+> ― Gaston Bachelard , The Poetics of Space
 
 Given that writing has been a process of unfolding in this Self-Directed Masters, the words and images that I use are often surprising and expected encounters. I’m noticing emergent patterns in how I return to specific ideas --  gossamer threads weaving into a spiders’ webs that are beginning to catch and cradle meaning. Here, my desire is to begin to spin some of these threads into a bridge, so that we might meet in the middle and play. 
 
@@ -18,21 +20,20 @@ Let us not confuse the finger for the moon nor confuse the map for the territory
 
 ## **The Calling and Making of the Soul**
 
-***Other fingers that point in a similar direction:*** **Fugitive Souls, Soul-making, Compass of trembling, Strange Attractor**
+***Other fingers that point in a similar direction:*** \
+**Fugitive Souls, Soul-making, Compass of trembling, Strange Attractor**
 
-What is a soul? When I look up the etymology, it is described as “a substantial entity believed to be that in each person which lives, feels, thinks and wills". It may also derive from the Proto-Germanic word saiwaz, which means "coming from or belonging to the sea” or "from the lake" as a dwelling-place of souls. 
+What is a *soul* and what does the word evoke?? When I look up the etymology, it is described as “a substantial entity believed to be that in each person which lives, feels, thinks and wills". It may also derive from the Proto-Germanic word *saiwaz*, which means **"coming from or belonging to the sea”** or "from the lake" as a dwelling-place of souls. 
 
 The dwelling place of souls “come from and belong to the sea” -- why does this awaken in me a primordial impulse for return? 
 
-I was raised in a Catholic tradition, where I thought of the “soul” as something to be saved. The soul endures after death, is liberated from the mortal coil of the flesh to transcend to heaven or descend to hell. When I replaced religious faith for secular faith as I got older, the soul became the “mind”, and a symbol for Cartesian mind-body dualism that split the material from the immaterial, the visible from the invisible, the sacred from the profane. The Fugitive Soul lives in the thick middle of these binaries. 
+I was raised in a Catholic tradition, where I was told the “soul” is something to be saved. The soul endures after death, is liberated from the mortal coil of the flesh to transcend to heaven or descend to hell. When I replaced religious faith for secular faith as I got older, the soul became the “mind”, and a symbol for Cartesian mind-body dualism that split the material from the immaterial, the visible from the invisible, the sacred from the profane. The [Fugitive Soul ](https://cherylhsu.ca/post/2021-02-11-the-lighting-of-fugitive-souls/)lives in the thick middle of these binaries. 
 
 Here, this Self-Directed Masters is in service to reconnecting with and cultivating a soul’s calling -- a soul that is not separated from the flesh,  but entangled with the bodily senses, with the mind’s fluid perception. The calling is an attraction --  to be pulled towards and surrender to the unfolding of something that feels like an authentic or pure self (but the soul also dances across the boundary of selfhood into the deep sea from which it is sourced). Yet it is also a creative process: in following the soul, I simultaneously make the soul. 
 
-An adjacent secular term might be Intuition, yet I use the word “soul” purposefully to elicit the sacred, insofar as a sacred relationship with a soul honours its irreducible Mystery. When nurtured, my soul tells me when “something feels right” and is worthy of following. I’m learning to be present with, tune into and listen to it as an inner instrument, seeking to tremble and vibrate at a soul’s frequency that is the Strange Attractor of my becoming. 
+An adjacent secular term might be **Intuition**, yet I use the word “soul” purposefully to elicit the sacred, insofar as a sacred relationship with a soul honours its irreducible Mystery. When nurtured, my soul tells me when “something feels right” and is worthy of following. I’m learning to be present with, tune into and listen to it as an inner instrument, seeking to tremble and vibrate at a soul’s frequency that is the Strange Attractor of my becoming. 
 
 I must also emphasize that the soul is not an individual, separated, or solo entity, but  it is called forth and made through relationships, in community and the collective. For me, my soul has revealed most acutely through [presencing with others.](https://cherylhsu.ca/post/2020-11-11-first-mover/)
-
-
 
 ***A Carrier bag of ideas that I draw upon to reference soul’s calling:*** 
 
@@ -40,13 +41,13 @@ I must also emphasize that the soul is not an individual, separated, or solo ent
 
   Ria Baeck’s Collective Presencing 
 
-***Entries where I describe the soul’s calling:*** 
+***Entries where I gesture to soul’s calling:*** 
 
-* The lighting of fugitive souls 
+* [The Lighting of Fugitive Souls ](https://cherylhsu.ca/post/2021-02-11-the-lighting-of-fugitive-souls/)
 
-  Commitment to Calling
+  [Becoming Strange Attractor ](https://cherylhsu.ca/post/2020-11-18-becoming-strange-attractor/)
 
-
+  [Commitment to Calling](https://cherylhsu.ca/post/2020-11-06-commitment-to-calling/)
 
 ## \--
 
@@ -62,18 +63,22 @@ And yet, I sense that the fields of our control are not so pure and contained, a
 
 Entangled Sovereignty foregrounds relationality and sympoiesis: no thing makes itself, we make-together through the ever-changing relationships that co-create our ever-changing identities, and the fluid dynamics and negotiations of power that enables individual and collective becoming. The ethics of how we live and die together means that we are co-response-able and co-accountable in our entangled relationships of reciprocity. 
 
-
-
 ***A Carrier bag of ideas that I draw upon to reference entangled sovereignty:*** 
 
-* Karen Barad’s Agential Realism and "the ontological inseparability of intra-acting agencies". 
+* Karen Barad’s Agential Realism and "the ontological inseparability of intra-acting agencies"
 * Donna Haraway notions of Sympoiesis  and living with the trouble 
 * Meta-modern and Game B notions of cultivating self-sovereignty 
-* Nors Bateson’s Warm Data and foregrounding of interrelationships that form complex systems 
+* Nora Bateson’s Warm Data and foregrounding of interrelationships that form complex systems 
 
-***Writing where I describe entangled sovereignty:*** 
+***Writing where I gesture to entangled sovereignty:*** 
 
-* ***[The Sympoeisis of Life Lifeing ](https://cherylhsu.ca/post/2021-01-20-life-lifeing/)***
+* [The Sympoeisis of Life Lifeing ](https://cherylhsu.ca/post/2021-01-20-life-lifeing/)
+
+  [The Lighting of Fugitive Souls ](https://cherylhsu.ca/post/2021-02-11-the-lighting-of-fugitive-souls/)
+
+
+
+
 
 \--
 
@@ -95,30 +100,24 @@ The simultaneity of surrender and leap is often described as “flow state” an
 * Psychologist Mihaly Csikszentmihalyi’s notion of flow 
 * Martin Heidegger and Hubert Dreyfus’s phenomenology of being-in-the-flow 
 
-
-
-***Writing where I describe surrender/leap of faith:*** 
+***Writing where I gesture to surrender/leap of faith:*** 
 
 * [Shaping Change by Leaping (Intentions Part 1)](https://cherylhsu.ca/post/2021-01-06-shaping-change-and-creating-new-worlds/ "Shaping Change by Leaping (Intentions Part 1)")
 
-### **Groundless Ground:** 
+  [a tiny dance in stillness ](https://cherylhsu.ca/post/2020-12-22-a-tiny-dance-in-stillness/)
+
+## **Groundless Ground:** 
 
 ***Other fingers that point in a similar direction:* Emptiness, The Void, Post-modernism** 
 
-
-
 ### **The Great Mystery:** 
 
-***Other fingers that point in a similar direction:* Source, Dao, Life, The Divine, God is Change, The Ocean **
+***Other fingers that point in a similar direction:* Source, Dao, Life, The Divine, God is Change, The Ocean** 
 
-### **Pantheon of Identity** 
+### **Pantheon of Identity**
 
 ***Other fingers that point in a similar direction:* Pluralism, Family System, Plural selves, Polytheism, Difference** 
 
-
-
-
-
-### **Strange attractor** 
+### **Strange attractor**
 
 ***Other fingers that point in a similar direction:* Emergent patterning**
