@@ -16,7 +16,7 @@ So I hold a tension: **I believe that it is important to be responsible with my 
 
 Below is a working glossary of terms I’m using, as an attempt to get more pointy with my poetics. These signifiers are merely “fingers pointing to the moon”: momentary containers to catch something that will inevitably slip through hands. These are also words that house pauses -- pauses to be present, pauses to sense into the tone, texture, flavour of complexity, and pauses to slow down and dream together. 
 
-Let us not confuse the finger for the moon nor confuse the map for the territory. But let us also dance with and inhabit these words as temporary homes of Potential and the Imaginal. 
+Let us not confuse the finger for the moon nor confuse the map for the territory. But let us also dance with and inhabit these words as temporary homes of Unknown Potential and the Imaginal. 
 
 \--
 
