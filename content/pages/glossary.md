@@ -41,15 +41,15 @@ I must also emphasize that the soul is not an individual, separated, or solo ent
 
 * Rob Burbea and Catherine McGee’s Soul-Making Dharma 
 
-  Ria Baeck’s Collective Presencing 
+* Ria Baeck’s Collective Presencing 
 
 ***Entries where I gesture to soul’s calling:*** 
 
 * [The Lighting of Fugitive Souls ](https://cherylhsu.ca/post/2021-02-11-the-lighting-of-fugitive-souls/)
 
-  [Becoming Strange Attractor ](https://cherylhsu.ca/post/2020-11-18-becoming-strange-attractor/)
+* [Becoming Strange Attractor ](https://cherylhsu.ca/post/2020-11-18-becoming-strange-attractor/)
 
-  [Commitment to Calling](https://cherylhsu.ca/post/2020-11-06-commitment-to-calling/)
+* [Commitment to Calling](https://cherylhsu.ca/post/2020-11-06-commitment-to-calling/)
 
 ## \--
 
@@ -76,7 +76,7 @@ Entangled Sovereignty foregrounds relationality and sympoiesis: no thing makes i
 
 * [The Sympoeisis of Life Lifeing ](https://cherylhsu.ca/post/2021-01-20-life-lifeing/)
 
-  [The Lighting of Fugitive Souls ](https://cherylhsu.ca/post/2021-02-11-the-lighting-of-fugitive-souls/)
+* [The Lighting of Fugitive Souls ](https://cherylhsu.ca/post/2021-02-11-the-lighting-of-fugitive-souls/)
 
 \--
 
@@ -102,7 +102,7 @@ The simultaneity of surrender and leap is often described as “flow state” an
 
 * [Shaping Change by Leaping (Intentions Part 1)](https://cherylhsu.ca/post/2021-01-06-shaping-change-and-creating-new-worlds/ "Shaping Change by Leaping (Intentions Part 1)")
 
-  [a tiny dance in stillness ](https://cherylhsu.ca/post/2020-12-22-a-tiny-dance-in-stillness/)
+* [a tiny dance in stillness ](https://cherylhsu.ca/post/2020-12-22-a-tiny-dance-in-stillness/)
 
 ## **Groundless Ground:** 
 
