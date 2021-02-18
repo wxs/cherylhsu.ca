@@ -8,7 +8,7 @@ date: 2021-02-18T15:17:03.359Z
 > \
 > ― Gaston Bachelard , The Poetics of Space
 
-Given that writing has been a process of unfolding in this Self-Directed Masters of *Designing with Dragons*, the words and images that I use are often surprising and expected encounters. I’m noticing emergent patterns in how I return to specific ideas --  gossamer threads weaving into a spiders’ webs that are beginning to catch and cradle meaning. Here, my desire is to begin to spin some of these threads into a bridge, so that we might meet in the middle and play together. 
+Given that writing has been a process of unfolding in this Self-Directed Masters of *Designing with Dragons*, the words and images that I use are often surprising and unexpected encounters. I’m noticing emergent patterns in how I return to specific ideas --  gossamer threads weaving into a spiders’ web that are beginning to catch and cradle meaning. Here, my desire is to begin to spin some of these threads into a bridge, so that we might meet in the middle and play together. 
 
 Some of my explorations have been exuberantly poetic, in ways that I haven’t allowed or leaned into since I was a teenager nurturing a cringe-ey livejournal. It gives me a lot of personal pleasure and play in the writing process. I love the aesthetic vibe-creation of poetics, and the way it can express the potently ineffable, the thickly ambiguous, and the shimmering in-betweens. Yet the dark forest is dangerous as much as it is mysterious; Poetics conceal as much as it reveals. But it feels closer to truth than anything that purports to be obvious, clean, or simple: we inhabit diaphanous worlds of complexity and contradiction. 
 
