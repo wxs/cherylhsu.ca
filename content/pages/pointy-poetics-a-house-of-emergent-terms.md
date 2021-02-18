@@ -1,7 +1,9 @@
 ---
-title: "Pointy Poetics: A House of Emergent Terms "
+title: Glossary
 date: 2021-02-18T15:17:03.359Z
 ---
+# **Pointy Poetics: A House of Emergent Terms** 
+
 > **“I should say: the house shelters day-dreaming, the house protects the dreamer, the house allows one to dream in peace.”**\
 > \
 > ― Gaston Bachelard , The Poetics of Space
@@ -75,10 +77,6 @@ Entangled Sovereignty foregrounds relationality and sympoiesis: no thing makes i
 * [The Sympoeisis of Life Lifeing ](https://cherylhsu.ca/post/2021-01-20-life-lifeing/)
 
   [The Lighting of Fugitive Souls ](https://cherylhsu.ca/post/2021-02-11-the-lighting-of-fugitive-souls/)
-
-
-
-
 
 \--
 
