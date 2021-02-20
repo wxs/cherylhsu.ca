@@ -41,6 +41,7 @@ I must also emphasize that the soul is not an individual, separated, or solo ent
 
 * Rob Burbea and Catherine McGee’s Soul-Making Dharma 
 * Ria Baeck’s Collective Presencing 
+* James Hillman's depth psychology and soul-making 
 
 ***Entries where I gesture to soul’s calling:*** 
 
