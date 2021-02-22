@@ -3,7 +3,7 @@ title: About
 description: Designing with Dragons
 date: 2020-11-06
 ---
-{{< figure src="/images/unnamed-3.jpg" width="150px" >}}
+{{< figure src="/images/unnamed-3.jpg" width="300px" class="float-right" >}}
 
 ## **This is a container for the cultivation of a [“soul’s calling”](https://cherylhsu.ca/post/2020-11-06-commitment-to-calling/).** 
 
