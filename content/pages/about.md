@@ -15,7 +15,7 @@ Rather than avoiding dragons, I believe that we can have a joyful, sensual, and 
 
 \--
 
-## **But wait, what do you actually mean?** 
+## **But wait, what do you actually mean?**
 
 Okay, to share even [pointier](https://cherylhsu.ca/pages/glossary/) context:
 
@@ -25,8 +25,8 @@ It was difficult, however, not to feel like the work of designing "better future
 
 In March 2020, the pandemic provided the necessary rupture of the status quo, disrupting the patterns and scripts of known. We were collectively ushered, on a global scale, into the painful space of the liminal. We began to feel, in our collective bodies, systems and stories, what it means to truly not know. Our systems cracked through to the deepest foundations, and we slowed down enough to notice that something is shifting at the fluid level of the primordial and the mythic, at the cosmological and ontological foundations of how we live and know. 
 
-**So this Self-Directed Masters began in October 2020 as an inquiry of the soul:** into what happens when a designer chooses to shed her skins and discover herself a Mystery. It is the auto-ethnography of a design researcher and anthropologist, a participatory action research project into the transitions and mutations of embodied consciousness at the fractal scales of the individual, the collective and the cosmic. It blends metaphysical poetics with praxis -- a living, sympoietic investigation into more ethical and generous ways being-of-in-the-world, co-created in relationship with friends, peers, ancestors, cats, trees, rocks, dragons, dreams and shadows.
+**So this Self-Directed Masters began in October 2020 as an inquiry of the soul:** into what happens when a designer chooses to shed her skins and discover herself a Mystery. It is the auto-ethnography of a design researcher and anthropologist, a participatory action research project into the transitions and mutations of embodied consciousness at the fractal scales of the individual, the collective and the cosmic. It blends metaphysical poetics with praxis -- a living, sympoietic investigation into more ethical and generous ways of being, co-created in relationship with friends, peers, ancestors, cats, trees, rocks, dragons, dreams and shadows.
 
-Perhaps I am just telling a beautiful story here -- but I sense that cultivating and sourcing from the Mystery of the Soul allows us to swim into deeper potentialities, to enable the collective emergence and unfolding of plural possibilities, visions, and ways of being-in-the-world that feel unimaginable to us now. Stories are containers for us to make home and meaning in a groundless ground of post-truth and emptiness. As these stories resonate and endure, they sediment into lived ontologies, behaviours and materialities that design us back into ever-changing eddies and spirals of living and dying together. 
+Perhaps I am just telling a beautiful story here -- but I sense that cultivating and sourcing from the Mystery of the Soul allows us to swim into deeper potentialities, to enable the collective emergence and unfolding of plural possibilities, visions, and life worlds that feel unimaginable to us now. Stories are containers for us to make home and meaning in a groundless ground of post-truth and emptiness. As these stories resonate and endure, they sediment into lived ontologies, behaviours and materialities that design us back into ever-changing eddies and spirals of living and dying together. 
 
 So let’s design with mystery, shall we?
