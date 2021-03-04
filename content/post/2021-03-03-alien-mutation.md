@@ -52,11 +52,11 @@ I’m now encountering and making new friends who I’m beginning to trust, who 
 
 \-- 
 
-At the end of the episode of Pen15, Anna and Maya are in a dark, and isolating place -- they feel like their families hate them, everyone at school hates them, and it’s their fault. So they decide to do a spell together that makes them disappear. I’m shivering even as I’m writing this, remembering the way that Anna just *believes* and accepts that she is disappearing, staring at her hands and saying wistfully: “Do you see my fingers? They’re leaving me. The pain’s going away too actually”.   
+At the end of the episode of Pen15, Anna and Maya are in a dark and isolating place -- they feel like their families hate them, everyone at school hates them, and it’s their fault. So they decide to do a spell together that makes them disappear. I’m shivering even as I’m writing this, remembering the way that Anna just *believes* and accepts that she is disappearing, staring at her hands and saying wistfully: “Do you see my fingers? They’re leaving me. The pain’s going away too actually”.   
 
-In the end, friendship is what holds them together. Maya senses the truth of the agony and sorrow in her best friend, throbbing at the heart of this made up game of running away and being witches together. In an incredibly moving scene, Maya throws off the story all together, begging Anna to stop. She clings to her and desperately tries to anchor her disappearing best friend to what is true, what she can trust: **“Anna, you’re right here. You’re not disappearing. You’re staying here. I love you.”** 
+In the end, friendship is what holds them together. Maya senses the truth of the agony and sorrow in her best friend, throbbing at the heart of their made up game of running away and being witches together. In an incredibly moving scene, Maya throws off the story all together, begging Anna to stop. She clings to her and desperately tries to anchor her disappearing best friend to what is true, what she can trust: **“Anna, you’re right here. You’re not disappearing. You’re staying here. I love you.”** 
 
-And suddenly, the dark forest they are in fades away. They are sitting in Anna’s backyard, her house in the background, crying and clinging to each other. Clinging to friendship. Clinging to love. 
+And suddenly, the dark forest they are in fades away. They are sitting in Anna’s backyard, her house in the background, crying and clinging to each other. Clinging to magic of friendship. Clinging to the spell of love. 
 
 ![](https://lh4.googleusercontent.com/wqK99clhTf6vvYpdwka9Ff2-Z3RpMLW7lHAcOewI2Lm80ENuWrljyzGYIAg2Ph0lbmMtYKRhNhOuRIJf9f886vns8dBqd_shk3wSjuGaYCZqBBqwMUBgLDW8Ez0EgzppEt3QCl1m)
 
