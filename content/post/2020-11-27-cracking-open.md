@@ -1,6 +1,9 @@
 ---
 title: Cracking open
 date: 2020-11-26T23:49:40.299Z
+tags:
+  - embodiment
+  - ""
 ---
 ![](/images/tepotzlan.jpg)
 
