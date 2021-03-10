@@ -3,6 +3,7 @@ title: "Commitment to Calling "
 date: 2020-11-04T18:27:49.620Z
 tags:
   - soul
+  - masters
 ---
 This marks the beginning of my journey to capture reflections on what I’ve been naming my **“self-directed masters”** --  a permission space I’ve gifted myself to devote to unadulterated learning and self-actualization. Perhaps you ask: why do you need permission to learn Cheryl? 
 
