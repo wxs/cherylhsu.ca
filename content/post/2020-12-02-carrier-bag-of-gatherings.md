@@ -1,6 +1,8 @@
 ---
 title: "Carrier bag of gatherings "
 date: 2020-12-02T02:30:00.000Z
+tags:
+  - life
 ---
 Happenings weave together in curious gatherings. Today, I unpacked [Kenny’s Rom](https://kennyzhao.com/kennysroom) a little further and stumbled upon this essay from Ursula Le Guin called “[The Carrier Bag Theory of Fiction](https://www.google.com/search?q=carrier+bag+of+fiction&oq=carrier+bag+of+fiction&aqs=chrome..69i57j46j0i22i30l6.4176j0j4&sourceid=chrome&ie=UTF-8).” It is the kind of writing where you have to read it several times to soak it in, let it penetrate your skin and contaminate down to the deepest core of how we imagine, how we tell stories about ourselves.
 
