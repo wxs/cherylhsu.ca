@@ -1,6 +1,10 @@
 ---
 title: "The Second Cycle "
 date: 2021-02-05T13:08:40.212Z
+tags:
+  - masters
+  - soul
+  - ""
 ---
 **There are embers of fire warming my belly again.** 
 
