@@ -1,6 +1,11 @@
 ---
 title: The Compass of Trembling (Intentions Part 2)
 date: 2021-01-10T21:10:09.028Z
+tags:
+  - soul
+  - liminal
+  - sanctuary
+  - strangeattractor
 ---
 I’ve been using the tool [Year Compass](https://yearcompass.com/) to reflect on my 2020. Over the past four years, it’s been a useful container for summarizing, for picking up surprising and resonant threads. 
 
