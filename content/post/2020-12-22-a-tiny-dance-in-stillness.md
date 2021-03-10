@@ -1,6 +1,10 @@
 ---
 title: a tiny dance in stillness
 date: 2020-12-22T19:00:39.617Z
+tags:
+  - pressure
+  - presence
+  - tao
 ---
 I’ve been feeling tired, tender and irritable for the last several weeks, which has made it hard for me to write. I wake up every morning with the pressure of intention: *Today, I will write in this journal.* This and a scripted list of other actions that follow the narrative of  “Good Cheryl” -- meditation, physical exercise, outdoor walks and breathing in fresh air, being transformatively present in my meetings, cooking healthy meals, creating meaningful art.
 
