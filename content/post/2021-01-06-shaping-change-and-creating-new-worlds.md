@@ -1,6 +1,10 @@
 ---
 title: Shaping Change by Leaping (Intentions Part 1)
 date: 2021-01-05T20:12:09.185Z
+tags:
+  - pressure
+  - poiesis
+  - change
 ---
 It’s the New Year™! 
 
