@@ -1,6 +1,10 @@
 ---
 title: "loosening my fingers around abundance "
 date: 2021-02-08T14:38:43.595Z
+tags:
+  - soul
+  - generosity
+  - reciprocity
 ---
 I’m in a love affair with life right now and she’s giving me an abundance to muse upon. 
 
