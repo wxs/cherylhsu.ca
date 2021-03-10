@@ -1,6 +1,10 @@
 ---
 title: rebuilding the slave ship
 date: 2021-01-13T15:29:41.035Z
+tags:
+  - wwdwm
+  - embodiment
+  - healing
 ---
 \-
 
