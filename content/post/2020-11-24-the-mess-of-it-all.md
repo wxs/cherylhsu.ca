@@ -1,6 +1,9 @@
 ---
 title: "the mess of it all "
 date: 2020-11-24T15:14:39.379Z
+tags:
+  - entanglement
+  - embodiment
 ---
 This journal is proving to be a very effective container for gathering threads. It started as this little woven basket that I’ve stowed away at the corner of my head, and when I find a cool piece of string or yarn, I stick it into my basket. 
 
