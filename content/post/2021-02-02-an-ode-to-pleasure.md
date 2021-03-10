@@ -5,6 +5,7 @@ tags:
   - pleasure
   - embodiment
   - design
+  - healing
 ---
 *The muse of **Pleasure** is dancing around me.* 
 
