@@ -1,7 +1,10 @@
 ---
 title: An Ode to Pleasure
 date: 2021-02-02T14:54:33.585Z
-tags: []
+tags:
+  - pleasure
+  - embodiment
+  - design
 ---
 *The muse of **Pleasure** is dancing around me.* 
 
