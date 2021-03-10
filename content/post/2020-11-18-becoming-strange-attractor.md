@@ -1,6 +1,11 @@
 ---
 title: Becoming Strange Attractor
 date: 2020-11-18T20:46:52.754Z
+tags:
+  - strangeattractor
+  - vibrations
+  - soul
+  - wwdwm
 ---
 According to Wikipedia, a **strange attractor** is “a value toward which a system tends to evolve, for a wide variety of starting conditions of the system.” These strange attractors are emergent patterns that arise out of chaotic systems, recurring fractal vibrations in the unpredictable cacophony of the void. 
 
