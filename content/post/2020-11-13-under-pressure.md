@@ -1,6 +1,10 @@
 ---
 title: "Under Pressure "
 date: 2020-11-12T16:59:59.888Z
+tags:
+  - pressure
+  - poiesis
+  - art
 ---
 I was carried by [Kenny’s Room](https://kennyzhao.com/kennysroom) on my run today -- a mixtape created and shared by one of the participants in Bayo Akomolafe’s *We Will Dance With Mountains*. It gorgeously weaves together a soundscape of words, vibrations and songs around the desire to root in love and the sacred during this time of Quarantine. 
 
