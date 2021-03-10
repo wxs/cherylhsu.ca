@@ -5,6 +5,7 @@ tags:
   - soul
   - generosity
   - reciprocity
+  - life
 ---
 I’m in a love affair with life right now and she’s giving me an abundance to muse upon. 
 
