@@ -1,6 +1,10 @@
 ---
 title: "Midwifing "
 date: 2020-11-06T18:41:31.583Z
+tags:
+  - midwifing
+  - wwdwm
+  - ""
 ---
 An expression of my commitment to my *[soul's calling](http://cherylhsu.ca/post/2020-11-06-commitment-to-calling/)* is to try to write in this journal every day. 
 
