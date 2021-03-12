@@ -7,7 +7,9 @@ tags:
   - longing
   - poiesis
 ---
-It's been a year of the pandemic. Spring is starting to blossom around me, and with it, the bright green shoots of resonant insights. It’s an unfurling of something that’s been sleepily curled up in me, stretching its mouth and arms open in yawning, yearning awakening (leaning towards something still gossamer, perhaps the echoes of the future in the present?)
+It's been *a year* of the pandemic. 
+
+Spring is starting to blossom again around me, and with it, the bright green shoots of resonant insights. It’s an unfurling of something that’s been sleepily curled up in me, stretching its mouth and arms open in yawning, yearning awakening (leaning towards something still gossamer, perhaps the echoes of the future in the present?)
 
 The stillness of the pandemic has made me notice the subtle waves of my moods, the nuanced movements of how I open up or close inwards with the flux of weather and the seasons. The incoming Spring means that the skies are bluer, the birds are chirping, and it feels increasingly wonderful to be outside. My body isn’t defensive anymore; the air I breathe in doesn’t freeze my mouth and chest. This is why I love living in the seasonal cycles of Toronto, with its snowy harsh winters and its sweltering summers. We have these strange in-between seasons of Spring and Fall that feel both short and long, that stretch and fold at the same time. There is always the felt sense of **longing** that comes with the seasonal change, a noticeable change in the way that I stretch and expand into my larger environment, feel the build up of energy in the body, bask in the anticipatory knowing of warming days.
 
