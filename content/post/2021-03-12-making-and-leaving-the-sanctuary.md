@@ -4,7 +4,7 @@ date: 2021-03-12T13:02:58.635Z
 tags:
   - soul
   - sanctuary
-  - longing
+  - pluriverse
   - poiesis
 ---
 It's been *a year* of the pandemic. 
