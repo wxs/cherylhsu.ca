@@ -6,6 +6,7 @@ tags:
   - sanctuary
   - pluriverse
   - poiesis
+  - entanglement
 ---
 It's been *a year* of the pandemic. 
 
@@ -41,7 +42,7 @@ We nest ourselves into these sacred bubbles so we can regenerate, let our bodies
 
 Sanctuaries are ephemeral stopping points in lives of effortful negotiation with many different worlds. Because living on a planet that is your perfect sanctuary, that is your *eternal frictionless paradise*, means that you compromise other worlds. 
 
-My life world exists in tension and in relationship with many lifeworlds. We are bubbles that intimately nudge up against one another like foam. The negotiation of our boundaries, the ways they press and are porous, is part of the politics of being in a **pluriverse** -- a world of many worlds. The lived reality of one’s freedom is that it is bounded and limited by the freedom of others. I can’t do anything and everything that I want, anytime that I want. When I kick my foot out in frustration, the world kicks back in spiralling echoes (like the fever dream documentary of Adam Curtis’ *Can’t Get You Out of My Head*) This is how we engage with the dizzying complexity of the public realm, with the realpolitik of the shared commons. 
+My life world exists in tension and in relationship with many lifeworlds. We are bubbles that intimately nudge up against one another like foam. The negotiation of our boundaries, the ways they press and are porous, is part of the entangled politics of being in a **pluriverse** -- a world of many worlds. The lived reality of one’s freedom is that it is bounded and limited by the freedom of others. I can’t do anything and everything that I want, anytime that I want. When I kick my foot out in frustration, the world kicks back in spiralling echoes (like the fever dream documentary of Adam Curtis’ *Can’t Get You Out of My Head*) This is how we engage with the dizzying complexity of the public realm, with the realpolitik of the shared commons. 
 
 > “In the foam worlds, however, no bubble can be expanded into an absolutely centered, all-encompassing, amphiscopic org; no central light penetrates the entire foam in its dynamic murkiness. Hence the ethics of the decentered, small and middle-sized bubbles in the world foam includes the effort to move about in an unprecedentedly spacious world with an unprecedentedly modest circumspection; in the foam, discrete and polyvalent games of reason must develop that learn to live with a shimmering diversity of perspectives , and dispense with the illusion of the one lordly point of view. Most roads do not lead to Rome- that is the situation, European: recognize it.” \
 > ― Peter Sloterdijk, *Bubbles: Spheres I*
