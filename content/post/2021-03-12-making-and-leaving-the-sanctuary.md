@@ -1,0 +1,85 @@
+---
+title: Making and Leaving the Sanctuary
+date: 2021-03-12T13:02:58.635Z
+tags:
+  - soul
+  - sanctuary
+  - longing
+  - poiesis
+---
+It's been a year since the pandemic. Spring is starting to blossom around me, and with it, the bright green shoots of resonant insights. It’s an unfurling of something that’s been sleepily curled up in me, stretching its mouth and arms open in yawning, yearning awakening (leaning towards something still gossamer, perhaps the echoes of the future in the present?)
+
+The stillness of the pandemic has made me notice the subtle waves of my moods, the nuanced movements of how I open up or close inwards with the flux of weather and the seasons. The incoming Spring means that the skies are bluer, the birds are chirping, and it feels increasingly wonderful to be outside. My body isn’t defensive anymore; the air I breathe in doesn’t freeze my mouth and chest. This is why I love living in the seasonal cycles of Toronto, with its snowy harsh winters and its sweltering summers. We have these strange in-between seasons of Spring and Fall that feel both short and long, that stretch and fold at the same time. There is always the felt sense of **longing** that comes with the seasonal change, a noticeable change in the way that I stretch and expand into my larger environment, feel the build up of energy in the body, bask in the anticipatory knowing of warming days.
+
+Yet I hold my body still, cocooned in my isolation bubble. *I’m trembling with readiness, of barely contained potential.* Like a prolonged note held by a bow on the string of a cello. Like Meowbot when she’s hunting a bug on the ground, tail swishing behind her. I want my skin to become brown with the sun; my legs to become corded with biking muscles; I want to see the city come alive with the vibrant carpet of grasses and canopy of trees; I want to feel the sharp shock of cold water enveloping my body when I jump into a lake. I want to hug my friends and hold that embrace a little longer than usual, to feel the flutter of hearts beating. I want to build, I want to create, I want to *give*. My body is vibrating with all this wanting. 
+
+The longing is tormenting, yet also delicious. This is exactly how I need to hold and feel in the present moment. **This longing is sacred.** 
+
+My living experience of time in the pandemic has a different, embodied quality to it, the way it moves in oceanic waves --  ***stretching and folding***. This language comes from the Jean Gebser course on the *Ever-Present Origin.* Jeremy Johnson described integral time as the “rhythmicity of felt time”, of magic, mythical time. I’ve never felt so sensitive to how I’m moved by the flow and flux of the lunar cycles, by my menstrual cycles, by the seasonal cycles. I am not separate from these nested, entangled ecologies of organic time -- I am participating *with and of* them. 
+
+This heightened sensitivity is one of the small blessings of the pandemic. Confronted with the rupture, grief, and radical unknowability of the COVID-19, of navigating dizzying stay-at-home orders, we entered a bardo of liminality. At some point, I realized it was the right time for me to carve this mysterious hollow into a **sanctuary.** Sometimes, I called this sanctuary my [self-directed masters](https://cherylhsu.ca/post/2020-11-06-commitment-to-calling/), a soul's calling, a monastic retreat, or an artistic residency. Sometimes, I felt guilt around the deservingness of privilege, my refuge of indulgent navel-gazing. And then I remind myself, a sanctuary isn’t a selfish thing. 
+
+**We all need sanctuaries.**
+
+In order to protect ourselves and others, we’ve spent a year contained in our home as our enclosed bubble of reality. X and I have been living and breathing inside this shimmering, porous space, terraformed by the physical and digital. Our world is what philosopher Peter Sloterdijk describes as a **sphere**: *“the interior, disclosed, shared realm inhabited by humans – insofar as they succeed in becoming humans. Because living always means building spheres, both on a small and a large scale, humans are the beings that establish globes and look out into horizons. Living in spheres means creating the dimension in which humans can be contained. Spheres are immune-systematically effective space creations for ecstatic beings that are operated upon by the outside”.* 
+
+Living in this strange bubble: Mondays and weekends feel less real; the boundaries of work, labour and leisure dissolve into one another; our forays into the “outside” (beyond our daily walks outside) are both limited by and made more expansive through the glowing square of a screen -- now a **magical portal** -- into different worlds, into strange, intimate connections with people all around the world, across geography and time zones. I’ve been immersing myself in virtual communities that diffract light in the bubble beautifully, like a shimmering hall of mirrors. We’ve had the means and the luck to create a soft and beautiful nest to hold us through the pandemic, and to turn inwards into the sacredness of our inner worlds. 
+
+**Sanctuaries are sacred spaces.** It is a resonance chamber that is vast as an empty cathedral, and as intimately sensuous as my lungs expanding and contracting with air. Sanctuaries are where I can surrender to my full self unfolding; where I allow myself to touch and commune with something that feels deeply and intensely soulful. 
+
+Carving out sacred sanctuary with myself has been deeply liberating. I used to identify as an extravert, as someone who shows up as my best self with others. It’s been easy to flinch away from intimacy with myself, to avoid being alone through the quotidian distractions of the everyday. So the sanctuary that I’m discovering and cultivating has been endlessly surprising -- it is a secret treasure trove and an empty vessel at the same time. It is my private journal where I write poetry that might make me cringe (but in this private realm, my poetry is fucking glorious). It is the private sphere of the Imaginal, when I close my eyes and step into vibrant worlds of my making -- where the staggering complexity of me can take up all of the space, all of the breathing room to unfold into the infinite manifold possibility. Here, I’m Queen of the realm, and I feel powerful and sovereign. Here, we dance naked, the full polytheistic pantheon of my divine selves and we cry with and kiss my shadows and mysteries. Here, I let my lifeworld fill the entire universe. Here, I unfold into truth; because in order to be true with others, I must first be true with myself. Here, I plant and water the seed of [primal trust.](https://cherylhsu.ca/post/2021-03-03-alien-mutation/) Here, I relate with, tend to and make my soul. 
+
+Then there are the sacred sanctuaries held with others -- my [Folie a Deux](https://folieadeux.ca/) orbit with X; human and more-than-human kin with whom I co-create rich, relational fields that enable us to enter the generative [sympoeisis](https://cherylhsu.ca/post/2021-01-20-life-lifeing/) of becoming together. These are not scripted or safe relationships, these scandalous sanctuaries of deepening and discovery. Here, we hold hands at the edge of unknowing and become braver for it. Here, I feel loved and safe enough to peel back and unfold layers of myself that I do not yet know. Here, we test the waters of love without condition. Here, we enter a dojo where we learn to stay with the trouble of friction. Here, we practice the dance of failure and forgiving. Here, we witness and are endlessly surprised by the mystery and the divine in each other. 
+
+A sacred sanctuary is an **oasis** -- a *dwelling place* --  in the midst of a sprawling desert. It is a long moment to huddle around the fire, warm hands, share food, drink and stories in the thick deep of the dark forest. 
+
+**Yet sanctuaries are also temporary.** 
+
+We nest ourselves into these sacred bubbles so we can regenerate, let our bodies metabolize and transform in our rest. I am not meant to stay in paradise. When I'm in the sanctuary, I drink from the sweet waters of oasis, I eat plentifully. I become satiated and full, and I take [pleasure](https://cherylhsu.ca/post/2021-02-02-an-ode-to-pleasure/) in it. And then I pack my bags so I can walk away from it once again. So I can continue the fugitive journey in the dark forest, until I create and find my next temporary sanctuary.
+
+Sanctuaries are ephemeral stopping points in lives of effortful negotiation with many different worlds. Because living on a planet that is your perfect sanctuary, that is your *eternal frictionless paradise*, means that you compromise other worlds. 
+
+My life world exists in tension and in relationship with many lifeworlds. We are bubbles that intimately nudge up against one another like foam. The negotiation of our boundaries, the ways they press and are porous, is part of the politics of being in a pluriverse -- a world of many worlds. The lived reality of one’s freedom is that it is bounded and limited by the freedom of others. I can’t do anything and everything that I want, anytime that I want. When I kick my foot out in frustration, the world kicks back in spiralling echoes (like the fever dream documentary of Adam Curtis’ *Can’t Get You Out of My Mind*) This is how we engage with the dizzying complexity of the public realm, with the realpolitik of the shared commons. 
+
+> “In the foam worlds, however, no bubble can be expanded into an absolutely centered, all-encompassing, amphiscopic org; no central light penetrates the entire foam in its dynamic murkiness. Hence the ethics of the decentered, small and middle-sized bubbles in the world foam includes the effort to move about in an unprecedentedly spacious world with an unprecedentedly modest circumspection; in the foam, discrete and polyvalent games of reason must develop that learn to live with a shimmering diversity of perspectives , and dispense with the illusion of the one lordly point of view. Most roads do not lead to Rome- that is the situation, European: recognize it.” \
+> ― Peter Sloterdijk, *Bubbles: Spheres I*
+
+The fear of the other -- of the insufferable friction of the difference -- is what leads to the impulse to colonize and control, and the feverous desire to save the world. We’ve witnessed again and again how the terror of the unknown -- in ourselves, in each other, in the cosmos --  leads us to deem one bubble, one lifeworld, one map, as a totalizing “universe”. So how do we engage the inevitable pain and pleasure of difference, and not try to sublimate it into the totalizing palettes of diversity and inclusion, or of closed-border tribalism. 
+
+I wonder about this as I’m reconciling with and bumping up against the world outside. X and I took a long spring walk this week and witnessed the staggering complexity of plural worlds colliding: the warming weather is inspiring birds and people to stumble out of their nests and into the city. We are all a little shy and awkward, feeling feral after hiding inside our winter caves for so long. As we picked up dinner, we saw a man hack violently on the street, throw his middle fingers up at the world, and then lovingly pat his dog. The heightened sensitivity of the beginner mind brings sharp resolution and a nauseating sense of overwhelm. There is a buzzing vibrancy to the sprawling messages everywhere -- graffiti and tags painting every surface of the city as a canvas for the cacophonous expression of pain, love, hate and joy. A sense of living wildness in the territory. 
+
+Stepping outside our bubbles, we are no longer the sole rulers of our modest universes; we have to negotiate with the plural divinities in each person, the divinities in the teaming cosmos of the more-than-human. As things transition to a different “normal", we are beginning to re-pattern the social scripts that help us integrate and be “polite citizens”, to ease back into small talk, to navigate everyday sociality. So we try to smooth out the jagged edges of inequity and injustice. But I don’t want to burn out with outrage anymore, trying to save and protect each other. And I don’t want to avoid and numb away the pain, trying to save and protect myself. There is a different way, I know it in my heart. 
+
+Because integration is not a fixed or binary state, it is swirling, fluid and always moving. It is an improvisational dance that holds moments of tension and negotiation that ease into moments of alignment and coherence. It is the strange synchronicity of music, where dissonance can resonate as much as harmony, and tears accompany beauty. What if -- while pressed up against one another -- we *sink and lean into* the powerful push and pull of an underlying current? This is what I’ve noticed in intersubjective practices like Collective Presencing and People Need People (PNP) Warm Data sessions, courses like We Will Dance with Mountains, where scripts, roles and hierarchies are intentionally dropped away for intimate relationality. Can we invite the **sacred** in our dynamic relations with strangers -- allow ourselves to move and be moved by a deeper life force, that coheres difference more elegantly, more symbiotically... that allows us to cohabit with others who do not share our exact politics, our values, the perspectives of our lifeworlds? 
+
+Because I get the sense that sacred sanctuaries are not about safe places, but about the porous refuge of quietude. A sanctuary can be held in a **moment** -- the time of three breaths --  to dissolve yourself, to be vulnerable enough to be available to receive, to touch and be contaminated by something greater than yourself. 
+
+Because I also get the sense that bubbles and spheres of sanctuary are nested across fractal scales, inter-penetrate across multiple dimensions. Our feet are rooted to the spherical foundation of the earth. I look up at the dome of the sky and breath in the life-giving air of the spherical atmosphere. There are tiny bubbles of the sacred -- moments of sanctuary everywhere -- nested in the profane. 
+
+It is in air transformed to breath, held in my chest for a long expansive moment before release. It is breath held in the shimmering membrane of a soap bubble, blown by the man on the railbridge next to my house. It is held in the rapt attention of the children, who pause to gaze at the bubbles in wonder. It is held in rapt attention of parents, watching the wonder on the faces of their children, as their hearts expand with love. 
+
+And then the bubble pops. 
+
+
+
+
+
+> “The philosopher Alfred North Whitehead said that reality arises through a series of moments which feel into the past moment as they feel for(ward) the next moment. For Whitehead, the action in-between was nothing at all like the tight wire between the physicists’ cause and effect. Rather, Whitehead thought of this feeling-process – which he called “prehension” – as incredibly sensitive, provocative, and loving; and he construed it as the long, long moment of possibility, freedom and choice, in the timeless space of becoming, before the actual occasion is concretized into being. If you situated yourself imaginatively inside Whitehead’s process reality, you would experience yourself as a living center of transformational process. Without a sense of separate self, nevertheless you would feel the act of cause-creating-effect-creating cause… and in the a-temporal pulsations between cause and effect (actual and potential) you would discover vast promise and freedom. The more you prehended your neighbors and relations, the more extensive you would become, until you felt the in-becoming of one body through the simultaneous presence of many bodies. The more stabilized your prehension, over the long slow moment of feeling, the more expansive you would become, until you realized the in-becoming of one novel moment through the simultaneous presencing of many moments.\
+> *— Quoted from Bonnitta Roy, in Ria Baeck’s Collective Presencing* 
+>
+> “It’s the immemorial feelings\
+> I like the best: hunger, thirst\
+> their satisfaction; work-wearinesss\
+> earned rest; the falling again\
+> from loneliness to love\
+> the green growth the mind takes\
+> from the pastures in March;\
+> the gayety in the stride of a good team of Belgian mares\
+> that seems to shudder from me\
+> through all my ancestry.” 
+>
+> \-- by Wendell Berry (sent to me by my kin Zachary, in the midst of me writing this entry)
+
+
+
+![](/images/unnamed-1.jpg)
