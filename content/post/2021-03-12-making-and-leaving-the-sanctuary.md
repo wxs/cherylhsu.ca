@@ -8,6 +8,8 @@ tags:
   - poiesis
   - entanglement
 ---
+ *“What remains of the dream of human autonomy once the subject has experienced itself as a penetrable hollow body?”* 
+
 It's been *a year* of the pandemic. 
 
 Spring is starting to blossom again around me, and with it, the bright green shoots of resonant insights. It’s an unfurling of something that’s been sleepily curled up in me, stretching its mouth and arms open in yawning, yearning awakening (leaning towards something still gossamer, perhaps the echoes of the future in the present?)
