@@ -14,7 +14,7 @@ Some of my explorations have been exuberantly poetic, in ways that I haven’t a
 
 So I hold a tension: **I believe that it is important to be responsible with my language. I want to honour poetics, and yet I deeply value clear and coherent communication.** 
 
-Below is a working glossary of terms I’m using, as an attempt to get more pointy and precise with my poetics. These signifiers are merely “fingers pointing to the moon”: momentary containers to catch something that will inevitably slip through hands. These are also words that house pauses -- pauses to be present, pauses to sense into the tone, texture, flavour of complexity, and pauses to slow down and dream together. 
+Below is a working glossary of terms I’m using, as an attempt to get more pointy and precise with my poetics. These signifiers are merely *“fingers pointing to the moon”*: momentary containers to catch something that will inevitably slip through hands. They are *haunted houses*: dwelling places for ghosts of the past, present and future. These are also *spaces that house pauses*: pauses to be present, pauses to sense into the tone, texture, flavour of complexity, and pauses to slow down and dream together. 
 
 Let us not confuse the finger for the moon nor confuse the map for the territory. But let us also dance with and inhabit these words as temporary homes of Unknown Potential and the Imaginal. 
 
