@@ -59,9 +59,11 @@ Because integration is not a fixed or binary state, it is swirling, fluid and al
 
 Because I get the sense that sacred sanctuaries are not about safe places, but about the porous refuge of quietude. A sanctuary can be held in a **long moment** -- the time of three breaths --  to dissolve yourself, to be vulnerable enough to be available to receive, to touch and be contaminated by something greater than yourself. You transform, and then you shed your skin. 
 
-Because I also get the sense that bubbles and spheres of sanctuary are nested across fractal scales, inter-penetrate across multiple dimensions. Our feet are rooted to the spherical foundation of the earth. I look up at the dome of the sky and breath in the life-giving air of the spherical atmosphere. There are tiny bubbles of the sacred -- moments of sanctuary everywhere -- nested in the profane. 
+Because I also get the sense that bubbles and spheres of sanctuary are nested across fractal scales, inter-penetrate across multiple dimensions. My feet are rooted to the spherical foundation of the earth. I look up at the dome of the sky and breath in the life-giving air of the spherical atmosphere. Sometimes, spheres are portals that diffract us across dimensions. Sometimes, it feels like the strange loop of a torus -- the deeper I penetrate into myself, the more I dissolve into the infinite sphere of the cosmos. 
 
-It is in air transformed to breath, held in the chest for a long expansive moment before release. It is breath held in the shimmering membrane of a soap bubble, blown by the man on the railbridge next to my house. It is held in the rapt attention of the children, who pause to gaze at the bubbles in wonder. It is held in rapt attention of parents, watching the wonder on the faces of their children, as their hearts expand with love. 
+There are tiny bubbles of the sacred – moments of sanctuary everywhere – nested in the profane. 
+
+It is in air transformed to breath, held in container chest for a long expansive moment before release. It is breath held in the shimmering membrane of a soap bubble, blown by the man on the railbridge next to my house. It is held in the rapt attention of the children, who pause to gaze at the bubbles in wonder. It is held in rapt attention of parents, watching the wonder on the faces of their children, as their hearts expand with love. 
 
 And then, the bubble *pops.* 
 
