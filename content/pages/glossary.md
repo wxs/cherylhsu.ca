@@ -59,7 +59,7 @@ I associate individual sovereignty or self-sovereignty with empowerment, the con
 
 Sovereignty and autonomy are often also associated with control: for example, the field of what I can control might be my awareness and perception; I may not be able to control the exogenous forces of my relationships and circumstances, but I can be empowered in how I mindfully react to or perceive them. Some might say, “mind over matter”. 
 
-And yet, I sense that the fields of our control are not so pure and contained, and the membranes are porous. Sovereignty and soul are embodied, and I don’t have full control over my body or mind -- “I” am entangled with the lifeforms that inhabit the boundaries of my body, with the lifeforms that inhabit the larger bodies of which I am part. 
+And yet, I sense that the fields of our control are not so pure and contained, and the membranes are porous. Sovereignty and soul are embodied, and I don’t have full control over my body or mind -- “I” am entangled with the lifeforms that inhabit the boundaries of my body, with the lifeforms that inhabit the larger bodies of which I am part. We become through worlds with more-than-human forces.
 
 Entangled Sovereignty foregrounds relationality and sympoiesis: no thing makes itself, we make-together through the ever-changing relationships that co-create our ever-changing identities, and the fluid dynamics and negotiations of power that enable individual and collective becoming. The ethics of how we live and die together means that we are co-response-able and co-accountable in our entangled relationships of reciprocity. 
 
