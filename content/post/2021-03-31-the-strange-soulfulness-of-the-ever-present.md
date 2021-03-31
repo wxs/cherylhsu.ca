@@ -38,7 +38,7 @@ Over the last few weeks, I was watching Adam Curtis’ *Can’t Get You Out of M
 
 Adam Curtis rightly calls his series an **“emotional history of the modern world”**: experiencing the sprawling, disorienting six-part series is like participating in an intense hallucinatory fever dream of the now. Curtis folds together potent imagery that live, breathe, and haunt in their embeddedness in the depths of our collective psyche. Past and present collapse into one another. Footage of people running away on the streets of New York from the dust of 9/11, the building tension of Tiananmen Square -- make my body tense in horrified anticipation -- before it is disrupted by footage of people shopping and dancing together and CG-ed cartoon of a robot teaching about positive psychology -- weaved together with a bizarre soundtrack mixing Cocteau Twins, Nine Inch Nails, Rod Stewart and 2Pac. The series  is like an attempt at a conspiracy wall in a Thomas Pynchon novel, where threads are pulled together to make sense of what is happening, yet any attempt at meaning inevitably leads nowhere.
 
-Yet the dream-like, seemingly random associations of image, sound and people across space and time, of history pressing up into the present, might be a documentation of the growing pains of a required mutation away from the limitations of the perspectival world. 
+Yet the dream-like, seemingly random associations of image, sound and people across space and time -- of history pressing up into the present -- might be a reflection of the growing pains of a required mutation away from the limitations of the perspectival world. 
 
 The modern, perspectival world -- which Gebser describes as picking up pace during the Renaissance period -- is one where the human stands apart and distanced from the world in order to perceive it, to “look through space and thereby to perceive and grasp space rationally.”  This is in contrast to the dream-like non-perspectival world of archaic, magical and mythical consciousnesses, where humans saw ourselves as one with and of the animist more-than-human, world and cosmos (Evocations of this stand out most in Indigenous cosmologies, and in the film *"Cave of Forgotten Dreams",* where images of stunning cave drawings connects us back to our human ancestors 30,000 years ago).
 
@@ -76,6 +76,7 @@ Here, I dare to wonder whether --  in our confrontation with the depths of pain
 
 &nbsp;
 &nbsp;
+
 # We are all cyborgs dreaming of electric sheep 
 
 ![](https://lh6.googleusercontent.com/Gyn9fNv9JFS40C6wxXSd8wu-dMhwWuECgiZ0XPDgMkaavtXnRfPfNFELT5m3EIQByJLuN-7wkj0IuKWV3wVA0fR_Nk0rde-huZnVWHBKNCNxF_E5RzrcGj-QPe1xyUbxbtWi0Txn)
