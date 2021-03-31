@@ -1,5 +1,5 @@
 ---
-title: The Strange Soulfulness of the Ever Present
+title: The Strange Soulfulness of Presence
 date: 2021-03-31T12:40:53.218Z
 tags: []
 ---
@@ -27,9 +27,10 @@ I was listening to one of Jeremy Johnson’s lectures on Jean Gebser’s *Ever P
 
 What feels spooky, strange and uncanny -- that makes my heart palpitate, my spine tingle, and my mind immediately try to resist and reject  -- is the diaphanous potential of *Interconnected Mystery.* It is one thing to abstractly engage these ideas, and it’s another to feel as though I am possessed by them. Yet at the same time, I also sense that the potential of this Mystery is already held latently within me, is already working on me. It’s buried in the shadows of every day experience; and as Carl Jung famously said, *“Until you make the unconscious conscious, it will direct your life and you will call it fate.”* 
 
+&nbsp;
+&nbsp;
 
-
-## A discontinuous leap 
+# A discontinuous leap 
 
 Over the last few weeks, I was watching Adam Curtis’ *Can’t Get You Out of My Head* at the same time as I was reading the first few chapters in a [course](https://www.nuralearning.com/sttw-2021.html) around Jean Gebser’s Ever Present Origin. I was struck by how Adam Curtis’s work is a living artefact depicting what Gebser describes as the limits of perspectival world, teetering dangerously over an edge:
 
@@ -73,9 +74,9 @@ So where do we go from here? To be honest, I think that a mutation is already ha
 
 Here, I dare to wonder whether --  in our confrontation with the depths of pain, grief and suffering -- our imaginal cells are dreaming of and catalyzing a new capacity, dare I say, even a new structure of consciousness?
 
-
-
-## We are all cyborgs dreaming of electric sheep 
+&nbsp;
+&nbsp;
+# We are all cyborgs dreaming of electric sheep 
 
 ![](https://lh6.googleusercontent.com/Gyn9fNv9JFS40C6wxXSd8wu-dMhwWuECgiZ0XPDgMkaavtXnRfPfNFELT5m3EIQByJLuN-7wkj0IuKWV3wVA0fR_Nk0rde-huZnVWHBKNCNxF_E5RzrcGj-QPe1xyUbxbtWi0Txn)
 
