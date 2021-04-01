@@ -6,6 +6,7 @@ tags:
   - embodiment
   - design
   - healing
+  - collectivepresencing
 ---
 *The muse of **Pleasure** is dancing around me.* 
 
