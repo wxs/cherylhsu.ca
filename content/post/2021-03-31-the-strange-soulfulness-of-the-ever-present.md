@@ -1,7 +1,15 @@
 ---
 title: The Strange Soulfulness of Presence
 date: 2021-03-31T12:40:53.218Z
-tags: []
+tags:
+  - collectivepresencing
+  - soul
+  - sympoiesis
+  - entanglement
+  - gebser
+  - potential
+  - life
+  - mystery
 ---
 ![](https://lh3.googleusercontent.com/Wr17nDBP8SXjXUn3R7SLmvn0jwSXRYk2lt7-zKT0FbS0KDAkPoo4-xCCLgAFec4U7OVJzhpXFeBbEOYFyzeQlMOz2mmbF2yqU-jIWMKy0zVmhGlJeIX0jz_dls9GMXgyuPr4BzE-)
 
