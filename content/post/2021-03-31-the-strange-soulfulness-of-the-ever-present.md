@@ -104,3 +104,8 @@ I suppose that my focus on soulfully experiencing the world around me has been r
 Micheal Meade at a [Stoa session](https://www.youtube.com/watch?v=hZY3Z1sa41Y&ab_channel=TheStoa) spoke about the potential of transforming a **wound into a womb** -- into a field of potentiality where we can nurture genuinely new worlds that have never existed before. I think this is why more of “us” --  the field of people around systems change, foresight and transition design -- are beginning to reintegrate the archaic, magic and mythical structures of consciousness. We seek the wisdom of our Indigenous elders, the trees and our microbiomes. We seek to dance with, not just be burdened by, the presence of our past and future ancestors in our bodies. We seek to be moved by the felt resonance of ecological entanglement -- in the splendour of a zoom room or outdoors in a deep forest. We are beginning to fold the past and the future into the present.
 
 Whatever the aperspectival has in store, I sense that more-than-human meaning-making is going to be as strange as it is soulful.
+
+
+
+> *"What we cannot imagine cannot come into being."* \
+> -- bell hooks
