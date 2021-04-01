@@ -6,6 +6,7 @@ tags:
   - sovereignty
   - entanglement
   - potential
+  - wwdwm
 ---
 > In these fluid times, the soul has changed location: it is neither within...where our religious traditions mostly situated it nor without, among the wondrous and presumably determined order of the material world, where the natural philosophers hid it. It is between - in ecologies of weird bodies and howling sounds and throbbing membranes and secreting liquids and alien hues and nightly migrancies. The hallowed interior is broken; the mute exterior breached. The soul is at large, off the record, beside itself, always-to-come. And all we are left with is a gasp.
 >
