@@ -8,7 +8,7 @@ tags:
   - entanglement
   - gebser
   - potential
-  - life
+  - imaginal
   - mystery
 ---
 ![](https://lh3.googleusercontent.com/Wr17nDBP8SXjXUn3R7SLmvn0jwSXRYk2lt7-zKT0FbS0KDAkPoo4-xCCLgAFec4U7OVJzhpXFeBbEOYFyzeQlMOz2mmbF2yqU-jIWMKy0zVmhGlJeIX0jz_dls9GMXgyuPr4BzE-)
