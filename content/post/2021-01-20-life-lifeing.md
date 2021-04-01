@@ -6,6 +6,7 @@ tags:
   - poiesis
   - entanglement
   - sovereignty
+  - collectivepresencing
 ---
 I’ve been on a documentary kick lately, watching films from “[The Symbiotic Earth](https://hummingbirdfilms.com/symbioticearth/)” about the biologist Lynn Margulis,  “[Storytelling for Earthly Survival](https://earthlysurvival.org/)” about Donna Haraway, Nora Bateson’s “[An Ecology of the Mind](http://www.anecologyofmind.com/)” about her father, Gregory Bateson, and “[Infinite Potential](https://www.infinitepotential.com/)” about David Bohm. They were all beautiful pieces of the same puzzle, telling stories about the way life and reality relate, evolve, and co-produce in deep, warm, vibrating, [sympoiesis](https://www.google.com/search?q=sympoiesis&oq=sympoe&aqs=chrome.1.69i57j0i10i457j0i10l6.1851j0j4&sourceid=chrome&ie=UTF-8) together. 
 
