@@ -51,6 +51,8 @@ In fact, any forward-thrusting intentions or preconceptions (even subconscious, 
 
 In the event where I radically trust what channels from the alchemy of this event, I experience the unbearable lightness of “right time”. I simply fall into rhythm with something that is larger than the self -- a greater Creative flow. 
 
+![](/images/img-7123.jpg)
+
 &nbsp;
 
 ## **The Embodiment of Time** 
@@ -117,3 +119,9 @@ In the still point of the turning world, where past and future are gathered, we 
 *There would be no dance, and there is only the dance.*
 
 \-- TS Eliot, from *Burnt Norton*
+
+
+
+![](/images/img-7125.jpg)
+
+![](/images/img-7124.jpg)
