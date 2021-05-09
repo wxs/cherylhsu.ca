@@ -33,7 +33,7 @@ These thick moments are what Heidegger describes as the phenomenological encount
 
 And even then, my presenced relationship with thingness only happens for so long, until one realizes that the movers arrive at 2pm tomorrow and remaining objects are carelessly flung into boxes with the hastily scribbled label “MISC”.
 
-It is only now that our new place feels less like a storage locker and captures that mysterious quality of *home* again, I find the space and time to wonder about the uncanniness of these strange times. 
+It is only now that our new place feels less like a storage locker and captures that mysterious quality of *home* again, I reclaim the space and time to explore the thick temporics of these weeks. 
 
 &nbsp;
 
