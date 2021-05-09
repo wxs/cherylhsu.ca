@@ -103,7 +103,7 @@ I wonder about reframing the role of a designer as *someone who draws together t
 
 There is something truly terrifying in dislodging from the global consensus reality of Modernity, in “leaving the mainstream” to become lost in the labyrinth of rhizomatic reality tunnels. As we move into the uncanniness of ecological thinking, we face the dread and horror of decentering the human in the Anthropocene, only to become frighteningly exposed in the wild. It is like reading a horror story about a group of humans lost in the dark forest, and to suddenly take the perspective of the starving bear who hunts and eats them for sustenance. 
 
-So in times of transition, how does one begin to come home? 
+So in ungrounding times of transition, how does one begin to come home? 
 
 In the wise words of Ursula Le Guin, we are *always coming home.* We arrive at temporary dwellings in the on-going process of living time, dwellings that can house a *kairotic pause*. And in that stillness of that pause, in receiving the fullness of “right time”, **an event is happening. And this event is impossible to forecast or predict.** 
 
