@@ -49,7 +49,7 @@ Because in that *pause* -- where my body becomes porous to receive and hold inte
 
 In fact, any forward-thrusting intentions or preconceptions (even subconscious, well-intentioned ones, like “I want to come across caring, wise or good”) seems to disrupt the integrity and verity of what is present. The act of deep listening and witnessing is a transformative event -- not in a linear, cumulative manner, but in a deepening, revealing manner. When I sensefully witness intensity; something is in the process of *disclosing*-- a deepening connection to ancestral resilience, spiritual capacity, cosmic flow --  from a mysterious potential that is latently held within me. And integrity is holding true to this newly disclosed potential: am I perceiving with clarity and transparency what is present, and flowing with and through it? And as I manifest the potential through enactment, am I channelling the warm data in its tone and frequency. 
 
-In the events where I radically trust what channels from the alchemy of this event, I experience the lightness to “right time”. I simply fall into rhythm with something that is larger than the self -- a greater Creative flow. 
+In the event where I radically trust what channels from the alchemy of this event, I experience the unbearable lightness of “right time”. I simply fall into rhythm with something that is larger than the self -- a greater Creative flow. 
 
 &nbsp;
 
