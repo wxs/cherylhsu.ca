@@ -99,7 +99,7 @@ Having been trained as a systems and foresight designer, I think a lot about the
 
 I wonder about reframing the role of a designer as *someone who draws together temporary dwelling places of presence... to be poised for the arrival of the unknown future.* 
 
-Because there is something truly terrifying about genuinely disrupting the continuous grounding of linear progress, to make a discontinuous leap into the unknown. To dislodge onself from the global consensus reality of Modernity, “leaving the mainstream” to become lost in the labyrinth of rhizomatic reality tunnels. As we move into the uncanniness of ecological thinking, we face the dread and horror of decentering the human in the Anthropocene, only to become frighteningly exposed in the wild. It is like reading a horror story about a group of humans lost in the dark forest, and to suddenly take the perspective of the starving bear who hunts and eats them for sustenance. 
+Because there is something terrifying about genuinely disrupting the continuous grounding of linear progress, to make a discontinuous leap into the unknown. To dislodge onself from the global consensus reality of Modernity, “leaving the mainstream” to become lost in the labyrinth of rhizomatic reality tunnels. As we move into the uncanniness of ecological thinking, we face the dread and horror of decentering the human in the Anthropocene, only to become frighteningly exposed in the wild. It is like reading a horror story about being lost in a dark forest, and to suddenly take the perspective of the starving bear who hunting me for sustenance. 
 
 So in these ungrounding times of transition, how does one begin to come home? 
 
