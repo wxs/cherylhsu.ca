@@ -99,7 +99,7 @@ And when I choose to fully experience and dwell with all that is present --  in
 
 Having been trained as a systems and foresight designer, I think a lot about the future. Design has always signified that vital human desire, described by Hebert Simon, to  *“devise courses of action aimed at changing existing situations into preferred ones”.* As a systemic designer, I work to co-create visions of preferred worlds and realities, and then design pathways of interventions to manifest them into being. Yet increasingly, I sense that design is trapped in what Jean Gebser describes as the mental structure of perspectival consciousness --  we represent the future(s) as something we move towards from *now*, as a better and preferred destination we must reach in the distance. Yet when we try to “create” our visions of the possible, plausible, probable and preferable futures (in the classic futures cone below), we are limited to *synthesizing* from the **known** -- we do horizon scanning for signals and trends and try to “make sense” of the possibilities. 
 
-![](https://lh6.googleusercontent.com/oFilxte7EJyQAHiLTBSWW4LnmvySouCN-71kRVYnjt9CtkG8oJ4GrcJgMU9C7eT-jZADKSlqDjZZr1Ah6yvUGyXsgMQSEnKwRyv8lB1fKah7MD8bmWZ0C0x8eWgpAP4_VEnDxVG-)
+![]()
 
 *Image: The foresight futures cone* 
 
