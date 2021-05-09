@@ -13,8 +13,6 @@ Perhaps I have come to rely on these journal entries as posts to drape the durat
 
 So I allow the urgency of writing to slowly drip off me, trusting that *right time* will come. And in the moment of letting go, I feel my soul stirring again. 
 
-
-
 ![](/images/img_7169.jpg)
 
 &nbsp;
@@ -101,9 +99,9 @@ Having been trained as a systems and foresight designer, I think a lot about the
 
 I wonder about reframing the role of a designer as *someone who draws together temporary dwelling places of presence... to be poised for the arrival of the unknown future.* 
 
-There is something truly terrifying in dislodging from the global consensus reality of Modernity, in “leaving the mainstream” to become lost in the labyrinth of rhizomatic reality tunnels. As we move into the uncanniness of ecological thinking, we face the dread and horror of decentering the human in the Anthropocene, only to become frighteningly exposed in the wild. It is like reading a horror story about a group of humans lost in the dark forest, and to suddenly take the perspective of the starving bear who hunts and eats them for sustenance. 
+Because there is something truly terrifying about genuinely disrupting the continuous grounding of linear progress, to make a discontinuous leap into the unknown. To dislodge onself from the global consensus reality of Modernity, “leaving the mainstream” to become lost in the labyrinth of rhizomatic reality tunnels. As we move into the uncanniness of ecological thinking, we face the dread and horror of decentering the human in the Anthropocene, only to become frighteningly exposed in the wild. It is like reading a horror story about a group of humans lost in the dark forest, and to suddenly take the perspective of the starving bear who hunts and eats them for sustenance. 
 
-So in ungrounding times of transition, how does one begin to come home? 
+So in these ungrounding times of transition, how does one begin to come home? 
 
 In the wise words of Ursula Le Guin, we are *always coming home.* We arrive at temporary dwellings in the on-going process of living time, dwellings that can house a *kairotic pause*. And in that stillness of that pause, in receiving the fullness of “right time”, **an event is happening. And this event is impossible to forecast or predict.** 
 
@@ -119,8 +117,6 @@ In the still point of the turning world, where past and future are gathered, we 
 *There would be no dance, and there is only the dance.*
 
 \-- TS Eliot, from *Burnt Norton*
-
-
 
 ![](/images/img-7125.jpg)
 
