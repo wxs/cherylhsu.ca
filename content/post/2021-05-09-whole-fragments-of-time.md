@@ -13,6 +13,10 @@ Perhaps I have come to rely on these journal entries as event posts to drape dur
 
 So I allow the urgency of writing to slowly drip off me, trusting that *right time* will come. And in the moment of letting go, I feel my soul stirring again. 
 
+
+
+![](/images/img_7169.jpg)
+
 &nbsp;
 
 ## The Passing of Time 
