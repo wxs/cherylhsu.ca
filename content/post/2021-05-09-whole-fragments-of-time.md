@@ -31,7 +31,7 @@ And then on the other hand, I would pick up an old light bulb and face the infur
 
 These thick moments are what Heidegger describes as the phenomenological encounter with *an object that becomes a thing* -- a **thing** that is deeply complex and materially entangled. Confronting the uncanny thing-ness of all the stuff  around me was a strange-making process with everything that felt so familiar, safe and comfortable in its gestalt. Whatever constituted the warm wholeness of “home” was progressively broken down into component parts to be packed into cardboard boxes, revealing dust and dirt in shadowy spaces that I had never noticed, lost memories in hidden corners. 
 
-And even then, my presenced relationship with thingness only happened for so long, until one realizes that the movers arrive at 2pm tomorrow and remaining objects are carelessly flung into boxes with the hastily scribbled label “MISC”.
+And even then, my presenced relationship with thingness only happens for so long, until one realizes that the movers arrive at 2pm tomorrow and remaining objects are carelessly flung into boxes with the hastily scribbled label “MISC”.
 
 It is only now that our new place feels less like a storage locker and captures that mysterious quality of home again, I find the space and time to wonder about the uncanniness of these strange times. 
 
