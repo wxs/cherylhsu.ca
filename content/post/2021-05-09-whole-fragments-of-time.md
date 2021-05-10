@@ -59,7 +59,7 @@ In the event where I radically trust what channels from the alchemy of this even
 
 ## **The Embodiment of Time** 
 
-As I relate the horizontal dimension of *chronos* (as past, present and future) with this seemingly “vertical” dimension of *kairos*, what is the *energetic nexus of the middle* but my **body?** 
+As I relate the horizontal dimension of *chronos* (as past, present and future) with this seemingly “vertical” dimension of *kairos*, what is the *energetic nexus of the middle* but my **body?** Somehow, when I centre myself here, rippling out from a body stretched in the oscillating tension between the vertical and the horizontal, I expand more towards to a radial fullness of time.
 
 My lived phenomenology of time is fundamentally embodied and organic. It is my body that enters a kind of physical flow state on moving day, becoming this resilient sinewy animal that tirelessly lifts boxes for hours (until I collapse later). When something resonates with me, it is with an energetic sense of “rightness” that trembles through my body. We are not these divided creatures, where our spirits are separate from flesh. 
 
