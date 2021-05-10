@@ -11,7 +11,7 @@ T.S Eliot’s *The Wasteland* came up several times last month. I have to admit 
 
 Perhaps I have come to rely on these journal entries as posts to drape the duration of an endless pandemic where, captured by the words of John Steinbeck: “from nothing to nothing is no time at all.”  Yet truthfully, I just haven’t been in the space to write. The part of me that feels committed to a particular pace and discipline of writing here is deeply *irritated*  -- every day passing stacks up another vague let down. Yet who or what am I letting down? What is this supposed pace of output that I have become so attached to?
 
-So I allow the urgency of writing to slowly drip off me, trusting that *right time* will come. And in the moment of letting go, I feel my soul stirring again. 
+So I allow the urgency of writing to slowly drip off me, trusting that *right time* will come. And in the [stillness](https://cherylhsu.ca/post/2020-12-22-a-tiny-dance-in-stillness/) of letting go, I feel my soul stirring again. 
 
 ![](/images/img_7169.jpg)
 
