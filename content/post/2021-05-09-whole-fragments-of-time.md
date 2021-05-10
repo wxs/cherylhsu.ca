@@ -97,7 +97,7 @@ And when I choose to fully experience and dwell with all that is present --  in
 
 Having been trained as a systems and foresight designer, I think a lot about the future. Design has always signified that vital human desire, described by Hebert Simon, to  *“devise courses of action aimed at changing existing situations into preferred ones”.* As a systemic designer, I work to co-create visions of preferred worlds and realities, and then design pathways of interventions to manifest them into being. Yet increasingly, I sense that design is trapped in what Jean Gebser describes as the mental structure of perspectival consciousness --  we represent the future(s) as something we move towards from *now*, as a better and preferred destination we must reach in the distance. Yet when we try to “create” our visions of the possible, plausible, probable and preferable futures (in the [classic futures cone](https://www.researchgate.net/profile/Giulia-Tasquier/publication/325659053/figure/fig2/AS:646763568439297@1531211859516/The-futures-cone-by-Voros.png)), we are limited to *synthesizing* from the **known** -- we do horizon scanning for signals and trends and try to “make sense” of the possibilities. 
 
-I wonder about reframing the role of a designer as *someone who draws together temporary dwelling places of presence... to be poised for the arrival of the unknown future.* 
+I wonder about reframing the role of a designer as *someone who draws together temporary dwelling places of presence -- **[sanctuaries ](https://cherylhsu.ca/post/2021-03-12-making-and-leaving-the-sanctuary/)**-- to be poised for the arrival of the unknown future.* 
 
 Because there is something terrifying about genuinely disrupting the continuous grounding of linear progress, to make a discontinuous leap into the unknown. To dislodge onself from the global consensus reality of Modernity, “leaving the mainstream” to become lost in the labyrinth of rhizomatic reality tunnels. As we move into the uncanniness of ecological thinking, we face the dread and horror of decentering the human in the Anthropocene, only to become frighteningly exposed in the wild. It is like reading a horror story about being lost in a dark forest, and to suddenly take the perspective of the starving bear who hunting me for sustenance. 
 
@@ -105,7 +105,7 @@ So in these ungrounding times of transition, how does one begin to come home? 
 
 In the wise words of Ursula Le Guin, we are *always coming home.* We arrive at temporary dwellings in the on-going process of living time, dwellings that can house a *kairotic pause*. And in that stillness of that pause, in receiving the fullness of “right time”, **an event is happening. And this event is impossible to forecast or predict.** 
 
-In the still point of the turning world, where past and future are gathered, we make space for the present. 
+In the still point of the turning world, where past and future are gathered, we make space to concretize the radical possibility of the present. 
 
 \-- 
 
