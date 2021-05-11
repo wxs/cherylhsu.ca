@@ -103,7 +103,7 @@ Because there is something terrifying about genuinely disrupting the continuous 
 
 So in these ungrounding times of transition, how does one begin to come home? 
 
-In the wise words of Ursula Le Guin, we are *always coming home.* We arrive at temporary dwellings in the on-going process of living time, dwellings that can house a *kairotic pause*. And in that stillness of that pause, in receiving the fullness of “right time”, **an event is happening. And this event is impossible to forecast or predict.** 
+In the wise words of Ursula Le Guin, we are *always coming home.* We arrive at temporary dwellings in the on-going process of living time, dwellings that can house a *kairotic pause*. And in that stillness of that pause, in receiving the fullness of “right time”, **an event is happening. And this event is impossible to forecast or predict...** 
 
 \
 and in the still point of the turning world, \
@@ -119,6 +119,8 @@ becomes transparent.\
 we are always coming home\
 to the radical unfolding of the Present. 
 
+
+
 \-- 
 
 *At the still point of the turning world. Neither flesh nor fleshless;*\
@@ -130,7 +132,7 @@ to the radical unfolding of the Present.
 
 \-- TS Eliot, *Burnt Norton*
 
-\*"All revealing belongs within a harboring and a concealing. But that which frees—the mystery—is concealed and always concealing itself... Freedom is that which conceals in a way that opens to light, in whose clearing there shimmers that veil that covers what comes to presence of all truth and lets the veil appear as what veils. **Freedom is the realm of the destining that at any given time starts a revealing upon its way."***
+*"All revealing belongs within a harboring and a concealing. But that which frees—the mystery—is concealed and always concealing itself... Freedom is that which conceals in a way that opens to light, in whose clearing there shimmers that veil that covers what comes to presence of all truth and lets the veil appear as what veils. **Freedom is the realm of the destining that at any given time starts a revealing upon its way."***
 
 \- Martin Heidegger, *A Question Concerning Technology*
 
