@@ -112,14 +112,12 @@ we create a *clearing,*\
 a clearing for an *event,*\
 an event that is impossible to forecast or predict.
 
-and here, where the veil shimmers,\
-what is revealed,\
+and here where the veil shimmers,\
+what always is,\
 becomes transparent.\
 \
 we are always coming home\
 to the radical unfolding of the Present. 
-
-
 
 \-- 
 
@@ -132,13 +130,9 @@ to the radical unfolding of the Present.
 
 \-- TS Eliot, *Burnt Norton*
 
-
-
-*"All revealing belongs within a harboring and a concealing. But that which frees—the mystery—is concealed and always concealing itself... Freedom is that which conceals in a way that opens to light, in whose clearing there shimmers that veil that covers what comes to presence of all truth and lets the veil appear as what veils. **Freedom is the realm of the destining that at any given time starts a revealing upon its way."***
+\*"All revealing belongs within a harboring and a concealing. But that which frees—the mystery—is concealed and always concealing itself... Freedom is that which conceals in a way that opens to light, in whose clearing there shimmers that veil that covers what comes to presence of all truth and lets the veil appear as what veils. **Freedom is the realm of the destining that at any given time starts a revealing upon its way."***
 
 \- Martin Heidegger, *A Question Concerning Technology*
-
-
 
 ![](/images/img-7125.jpg)
 
