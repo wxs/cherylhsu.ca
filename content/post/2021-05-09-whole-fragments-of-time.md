@@ -105,7 +105,21 @@ So in these ungrounding times of transition, how does one begin to come home? 
 
 In the wise words of Ursula Le Guin, we are *always coming home.* We arrive at temporary dwellings in the on-going process of living time, dwellings that can house a *kairotic pause*. And in that stillness of that pause, in receiving the fullness of “right time”, **an event is happening. And this event is impossible to forecast or predict.** 
 
-In the still point of the turning world, where past and future are gathered, we make space to concretize the radical possibility of the present. 
+\
+and in the still point of the turning world, \
+the borderlands where past and future are gathered, \
+we create a *clearing,*\
+a clearing for an *event,*\
+an event that is impossible to forecast or predict.
+
+and here, where the veil shimmers,\
+what is revealed,\
+becomes transparent.\
+\
+we are always coming home\
+to the radical unfolding of the Present. 
+
+
 
 \-- 
 
@@ -116,7 +130,15 @@ In the still point of the turning world, where past and future are gathered, we 
 *Neither ascent nor decline. Except for the point, the still point,*\
 *There would be no dance, and there is only the dance.*
 
-\-- TS Eliot, from *Burnt Norton*
+\-- TS Eliot, *Burnt Norton*
+
+
+
+*"All revealing belongs within a harboring and a concealing. But that which frees—the mystery—is concealed and always concealing itself... Freedom is that which conceals in a way that opens to light, in whose clearing there shimmers that veil that covers what comes to presence of all truth and lets the veil appear as what veils. **Freedom is the realm of the destining that at any given time starts a revealing upon its way."***
+
+\- Martin Heidegger, *A Question Concerning Technology*
+
+
 
 ![](/images/img-7125.jpg)
 
