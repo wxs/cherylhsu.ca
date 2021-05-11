@@ -117,7 +117,7 @@ what always is,\
 becomes transparent.\
 \
 we are always coming home\
-to the radical revealing of the Present. 
+in the radical arrival of the Present. 
 
 
 
