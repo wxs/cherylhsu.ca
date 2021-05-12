@@ -113,13 +113,11 @@ a clearing for an *event,*\
 an event that is impossible to forecast or predict.
 
 and here where the veil shimmers,\
-what always is,\
+what always was and will be,\
 becomes transparent.\
 \
 we are always coming home\
-in the radical arrival of the Present. 
-
-
+in the radical revealing of the Present. 
 
 \-- 
 
