@@ -33,10 +33,6 @@ But you see, the soul spider whispers, there is no escape. We are tunnels all th
 
 The soul’s shining thread is *inside* as far as it is outside -- it has always weaved through the waterways of my body, coursing through channels and spilling in and out of my mouth and ears. All I have to do is *touch* the thread
 
-*unclench* 
-
-
-
 &nbsp;
 
 and in the timeless moment of **contact**, song breaks through and she feels into the reverberations that sing forth. And she is moved by the felt resonance in her heart, strangely attracted. trembling in her body. moving slowly, not forward, but sideways and backwards. hands feeling walls that were previously solid, now softly yielding under her touch, *allowing.* 
