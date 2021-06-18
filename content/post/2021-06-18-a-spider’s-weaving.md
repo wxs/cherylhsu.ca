@@ -23,7 +23,7 @@ But the calling of the soul is deep, yin, and haunting.  She lures me towards t
 
 Sometimes, these tunnels become so tight and so dark that I have to crawl blindly with my hands and feet on the ground. Sometimes, a chilling fog seeps into my body, filling it with **dread:** have I been walking in circles (?) for how long (?) where am I trying to go (?) where am I being taken (?) am I stuck (?) am i lost (?) 
 
-*Am I lost?* The soul thread that seemed to shine has disappeared into an entangled mess of threads, forming the spider’s web in which I am caught as prey.  Fear forms as cold sweat. In the thick black, I feel the shadow touch of hungry ghosts and monsters that seek to possess and consume me. Trapped, my entire body writhes and struggles for *freedom.* My gut twists with betrayal, my heart clenches and pounds, drowning out a mind that desperately maps and strategizes its escape back to the light. 
+*Am I lost?* The soul thread that seemed to shine has disappeared into an entangled mess of threads, forming the spider’s web in which I am caught as prey.  Fear forms as cold sweat. In the tblack, I feel the shadow touch of hungry ghosts and monsters that seek to possess and consume me. Trapped, my entire body writhes and struggles for *freedom.* My gut twists with betrayal, my heart clenches and pounds, drowning out a mind that desperately maps and strategizes its escape back to the light. 
 
 But you see, the soul spider whispers, there is no escape. We are tunnels all the way down, tunnels all the way up, and tunnels all the way through. And these tunnels are spun together from delicate spiders’ webs into rhizomatic root systems without end.
 
@@ -33,7 +33,11 @@ But you see, the soul spider whispers, there is no escape. We are tunnels all th
 
 The soul’s shining thread is *inside* as far as it is outside -- it has always weaved through the waterways of my body, coursing through channels and spilling in and out of my mouth and ears. All I have to do is *touch* the thread
 
-unclench 
+*unclench* 
+
+
+
+&nbsp;
 
 and in the timeless moment of **contact**, song breaks through and she feels into the reverberations that sing forth. And she is moved by the felt resonance in her heart, strangely attracted. trembling in her body. moving slowly, not forward, but sideways and backwards. hands feeling walls that were previously solid, now softly yielding under her touch, *allowing.* 
 
