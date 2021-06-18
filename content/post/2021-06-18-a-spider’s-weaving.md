@@ -15,6 +15,8 @@ tags: []
 
 # **\--- a spider’s weaving**
 
+&nbsp;
+
 You have to start somewhere, so I follow the gossamer thread of soul down an ancient well. 
 
 I’ve been naming this container my self-directed masters. Yet truthfully, what feels more appropriate is to embrace it as **soul-directed masters** -- a spiralling journey of being called to *katabasis*. I needed to [walk away from Omelas](http://sites.asiasociety.org/asia21summit/wp-content/uploads/2011/02/3.-Le-Guin-Ursula-The-Ones-Who-Walk-Away-From-Omelas.pdf), away from a Modern world that gleamed and gave us certainty, but was scarce of song. I walked away, not knowing where to go and for how long, pockets empty of a ticket for return. 
