@@ -37,6 +37,8 @@ unclench 
 
 and in the timeless moment of **contact**, song breaks through and she feels into the reverberations that sing forth. And she is moved by the felt resonance in her heart, strangely attracted. trembling in her body. moving slowly, not forward, but sideways and backwards. hands feeling walls that were previously solid, now softly yielding under her touch, *allowing.* 
 
+&nbsp;
+
 \[she knows how to navigate her own labyrinth without a map. it is her dwelling place] 
 
 \
@@ -50,6 +52,8 @@ and *she slips through.* 
 &nbsp;
 
 \[the walls are made of webs after all, and she is the weaver, the unweaver and the weaved]
+
+&nbsp;
 
 *slip through, curtains*\
 *parting, free fall*\
