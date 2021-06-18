@@ -35,6 +35,9 @@ The soul’s shining thread is *inside* as far as it is outside -- it has always
 
 &nbsp;
 
+\[she unclenches her heart] 
+
+\
 and in the timeless moment of **contact**, song breaks through and she feels into the reverberations that sing forth. And she is moved by the felt resonance in her heart, strangely attracted. trembling in her body. moving slowly, not forward, but sideways and backwards. hands feeling walls that were previously solid, now softly yielding under her touch, *allowing.* 
 
 &nbsp;
