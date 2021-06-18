@@ -110,9 +110,13 @@ Here, *imagine*. Our bodies are instruments, and in becoming response-able, we a
 So let us meet the universe halfway, and *keep making contact.* After all, all human sounds -- even the ones that resonate the most beautifully -- decay eventually.  
 
 &nbsp;
+
+
 &nbsp;
+
+
 &nbsp;
--- 
+
 
 > *Sanctuary is the site where thought stops, where continuity is troubled, where the program glitches, where the master's whip tears the flesh open and is anointed by alien music, where freedom's lusts meet new worlds-in-the-making, where creation begins again. As if for the first time.* \
 > --- Bayo Akomolafe
