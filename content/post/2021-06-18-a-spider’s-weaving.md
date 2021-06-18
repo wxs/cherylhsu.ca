@@ -13,7 +13,7 @@ tags: []
 
 &nbsp;
 
-# **\--- A Spider’s Weaving**
+# **\--- a spider’s weaving**
 
 You have to start somewhere, so I follow the gossamer thread of soul down an ancient well. 
 
