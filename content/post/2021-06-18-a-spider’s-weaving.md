@@ -1,5 +1,5 @@
 ---
-title: a spider’s weav
+title: a spider’s weaving
 date: 2021-06-18T14:14:40.438Z
 tags: []
 ---
