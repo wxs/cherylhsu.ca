@@ -3,13 +3,16 @@ title: a spider’s weaving
 date: 2021-06-18T14:14:40.438Z
 tags: []
 ---
-> *When she crawls under her bed, she finds a dusty sticker collection and an ancient well.* 
->
-> *\[Watching the film "Ringu”, she was terrified by the image of a young woman with long dripping wet black hair, crawling like an insect out of the inky darkness.]* 
->
-> *She holds her breath, and plunges into the cold water.* 
+&nbsp;
+
+*When she crawls under her bed, she finds a dusty sticker collection and an ancient well.* 
+
+*\[Watching the film "Ringu”, she was terrified by the image of a young woman with long dripping wet black hair, crawling like an insect out of the inky darkness.]* 
+
+*She holds her breath, and plunges into the cold water.* 
 
 &nbsp;
+
 # **\--- A Spider’s Weaving**
 
 You have to start somewhere, so I follow the gossamer thread of soul down an ancient well. 
@@ -101,15 +104,15 @@ So let us meet the universe halfway, and *keep making contact.* After all, all h
 &nbsp;
 &nbsp;
 &nbsp;
-\-- 
+-- 
 
 > *Sanctuary is the site where thought stops, where continuity is troubled, where the program glitches, where the master's whip tears the flesh open and is anointed by alien music, where freedom's lusts meet new worlds-in-the-making, where creation begins again. As if for the first time.* \
 > --- Bayo Akomolafe
-&nbsp;
+> &nbsp;
 >
 > *“ It \[the evolution of human consciousness] is rather as if a musical instrument, which was being played on . . . an Aeolian harp perhaps, played on by nature herself . . . fell silent for a while. And then, after an interval, when it began to sound again, it was no longer merely an instrument, but had become aware of itself as such . . . and could itself take part in the playing of itself. ”*\
 > -- Owen Barfield 
-&nbsp;
+> &nbsp;
 >
 > *“And she opened the clenched fist in her mind and let go, and fell, into the midst of everything.”*\
 > -- The awakening of Teijitsu, 18th century abbess of Hakujuan, a Zen Buddhist nunnery near Eiheiji, Japan
