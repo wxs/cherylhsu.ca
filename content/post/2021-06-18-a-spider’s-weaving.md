@@ -9,6 +9,7 @@ tags: []
 >
 > *She holds her breath, and plunges into the cold water.* 
 
+&nbsp;
 # **\--- A Spider’s Weaving**
 
 You have to start somewhere, so I follow the gossamer thread of soul down an ancient well. 
@@ -43,6 +44,8 @@ the particles break into waves 
 
 and *she slips through.* 
 
+&nbsp;
+
 \[the walls are made of webs after all, and she is the weaver, the unweaver and the weaved]
 
 *slip through, curtains*\
@@ -67,8 +70,11 @@ and *she slips through.* 
 \
 *across the night sky as*\
 *vast as an open hand* 
-
+&nbsp;
 \[what if the web that traps us is the web that catches us when we fall]
+
+&nbsp;
+&nbsp;
 
 One thread interweaves with all other threads, but we’ve been knotted together so tightly and so densely together, for so long, that we believe that we’re **solid** and there is no other way. Our systems are ossified and stuck, and we react with more fixing. In this unyielding, clenching fixity, we see no other way. We hate the spider that trapped us, we vow to kill the monsters that make us suffer. Knuckles whiten around the sword that must cut through the Gordian knot. There is no other way. It is unimaginable to find another way. To loosen is to unravel, and discover that there is no solid ground. To loosen is to see that the spider (her name is Ariadne) has been living inside of us all along. 
 
@@ -92,13 +98,18 @@ Here, *imagine*. Our bodies are instruments, and in becoming response-able, we a
 
 So let us meet the universe halfway, and *keep making contact.* After all, all human sounds -- even the ones that resonate the most beautifully -- decay eventually.  
 
+&nbsp;
+&nbsp;
+&nbsp;
 \-- 
 
 > *Sanctuary is the site where thought stops, where continuity is troubled, where the program glitches, where the master's whip tears the flesh open and is anointed by alien music, where freedom's lusts meet new worlds-in-the-making, where creation begins again. As if for the first time.* \
 > --- Bayo Akomolafe
+&nbsp;
 >
 > *“ It \[the evolution of human consciousness] is rather as if a musical instrument, which was being played on . . . an Aeolian harp perhaps, played on by nature herself . . . fell silent for a while. And then, after an interval, when it began to sound again, it was no longer merely an instrument, but had become aware of itself as such . . . and could itself take part in the playing of itself. ”*\
 > -- Owen Barfield 
+&nbsp;
 >
 > *“And she opened the clenched fist in her mind and let go, and fell, into the midst of everything.”*\
 > -- The awakening of Teijitsu, 18th century abbess of Hakujuan, a Zen Buddhist nunnery near Eiheiji, Japan
