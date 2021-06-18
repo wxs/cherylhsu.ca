@@ -87,7 +87,7 @@ and *she slips through.* 
 &nbsp;
 &nbsp;
 
-One thread interweaves with all other threads, but we’ve been knotted together so tightly and so densely together, for so long, that we believe that we’re **solid** and there is no other way. Our systems are ossified and stuck, and we react with more fixing. In this unyielding, clenching fixity, we see no other way. We hate the spider that trapped us, we vow to kill the monsters that make us suffer. Knuckles whiten around the sword that must cut through the Gordian knot. There is no other way. It is unimaginable to find another way. To loosen is to unravel, and discover that there is no solid ground. To loosen is to see that the spider (her name is Ariadne) has been living inside of us all along. 
+One thread interweaves with all other threads, but we’ve been knotted together so tightly and so densely together, for so long, that we believe that we’re **solid** and there is no other way. Our systems are ossified and stuck, and we react with more fixing. In this unyielding, clenching fixity, we see no other way. We hate the spider that trapped us, we vow to kill the monsters that make us suffer. Knuckles whiten around the sword that must cut through the Gordian knot. There is no other way. It is unimaginable to find another way. To loosen is to unravel, and discover that there is no solid ground. To loosen is to see that the spider (her name is *ariadne*) has been living inside of us all along. 
 
 The unravelling has already been happening, they whisper to us that it is the Way. Perhaps. But let us be gentle and find **sanctuary** in falling apart. Let us be gentle and become very still, in order to listen. The frequency of a soul can be as subtle as the flutter of a spider’s thread, as quiet as water trickling deep underground. A racing heartbeat will drown it out. 
 
@@ -97,9 +97,9 @@ Because an event is happening. *An event that is impossible to forecast or predi
 
 Written here, ***call and response*** are words strung together on a linear chain. But play with me, and imagine that I’m placing, in front of you, seashells in the sand. I’ve collected so many in my carrier bag. 
 
-Here, *touch.* I put your fingers on a scallop shell. Feel the ridges and how they fan out radially. 
+Here, *touch.* I put your fingers on a scallop shell. You feel the ridges and how they fan out radially. 
 
-Here, *look.* I hold up an abalone shell. See how the iridescent surface glimmers with aliveness. 
+Here, *look.* I hold up an abalone shell. You see how the iridescent surface glimmers with aliveness. 
 
 Here, *taste.* I bring it to your mouth. You taste residues of seawater on the shell, reminding you of the salt of the blood that runs through your veins, the salt of tears. 
 
