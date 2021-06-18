@@ -1,5 +1,5 @@
 ---
-title: a spider’s weaving
+title: a spider’s unravelling
 date: 2021-06-18T14:14:40.438Z
 tags: []
 ---
@@ -13,7 +13,7 @@ tags: []
 
 &nbsp;
 
-# **\-- a spider’s weaving**
+# **\-- a spider’s unravelling** 
 
 &nbsp;
 
