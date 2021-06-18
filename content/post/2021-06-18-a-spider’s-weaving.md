@@ -73,7 +73,11 @@ and *she slips through.* 
 \
 *across the night sky as*\
 *vast as an open hand* 
+
+
 &nbsp;
+
+
 \[what if the web that traps us is the web that catches us when we fall]
 
 &nbsp;
