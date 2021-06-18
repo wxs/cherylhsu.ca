@@ -104,7 +104,7 @@ Here, *touch.* I put your fingers on a scallop shell. You feel the ridges and ho
 
 Here, *look.* I hold up an abalone shell. You see how the iridescent surface glimmers with aliveness. 
 
-Here, *taste.* I bring it to your mouth. You taste residues of seawater on the shell, reminding you of the salt of the blood that runs through your veins, the salt of tears. 
+Here, *taste.* I bring it to your mouth. You taste residues of seawater on the shell, reminding you of the salt of the blood that runs through your veins, the salt of tears that flow through the earth.
 
 Here, *listen.* I cup a hollow conch shell to your ear. You hear a vast resonance chamber filled with invisible threads and echoes and winds. Invisible threads over which you brush your ears, sounds an immense song that plays all at once: in timeless, cosmic synchronicity. *We respond to the echoes of what we call forth.* 
 
