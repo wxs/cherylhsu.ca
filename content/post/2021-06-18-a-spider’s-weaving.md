@@ -1,7 +1,8 @@
 ---
 title: a spider’s weaving
 date: 2021-06-18T14:14:40.438Z
-tags: []
+tags:
+  - soul
 ---
 &nbsp;
 
@@ -13,7 +14,7 @@ tags: []
 
 &nbsp;
 
-# **\-- a spider’s unravelling** 
+# **\-- a spider’s unravelling**
 
 &nbsp;
 
@@ -83,9 +84,11 @@ and *she slips through.* 
 *across the night sky as*\
 *vast as an open hand* 
 
+&nbsp;
 
 &nbsp;
 
+&nbsp;
 
 \[what if the web that traps us is the web that catches us when we fall]
 
@@ -116,21 +119,15 @@ So let us meet the universe halfway, and *keep making contact.* After all, all h
 
 &nbsp;
 
-
 &nbsp;
-
-
-
 
 > *Sanctuary is the site where thought stops, where continuity is troubled, where the program glitches, where the master's whip tears the flesh open and is anointed by alien music, where freedom's lusts meet new worlds-in-the-making, where creation begins again. As if for the first time.* \
 > --- Bayo Akomolafe
->
 >
 > &nbsp;
 >
 > *“ It \[the evolution of human consciousness] is rather as if a musical instrument, which was being played on . . . an Aeolian harp perhaps, played on by nature herself . . . fell silent for a while. And then, after an interval, when it began to sound again, it was no longer merely an instrument, but had become aware of itself as such . . . and could itself take part in the playing of itself. ”*\
 > -- Owen Barfield 
->
 >
 > &nbsp;
 >
