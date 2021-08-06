@@ -12,13 +12,13 @@ I want my summer to be saturated with presence. So I've embraced a quiet transit
 
 I write, but journal meanderingly, privately. Mostly, I’ve been floating on the shallow surface of a lake -- closing my eyes and feeling the summer sun bake the top of my body brown. On the flip side, the other(secret) half is submerged in the cold water. A grey fish nibbles at my feet, startling me -- I feel the frisson of nervousness, the uncanny reminder of the other creatures that lurk below, hiding in the dark ecology of mud and seaweed. But I don’t feel ready to dive yet. 
 
-Of course, breaks are where the most subtle forms of education happens. While I’m floating, I learn from *lingering*. Reading Byung-Chul Han:
+They don't tell you that breaks are where the most subtle forms of learning happens. While I’m floating, my education happens in *lingering*. Reading Byung-Chul Han:
 
 > *“Beauty is owed to duration, to contemplative synopsis. It is not a momentous brilliance or attraction, but an afterglow, a phosphorescence of things… Only in lingering contemplation, even an ascetic restraint, do things unveil their beauty, their fragrant essence.”*\
 > \
 > -- Byung-Chul Han, *The scent of time: a philosophical essay on the art of lingering* 
 
-When I linger, other more-than-human teachers are revealed. So here, I grant passage to potent moments of learning in the long summer days, the hot summer nights, and the twilight zones in-between:
+When I linger, an ecology of more-than-human teachers are revealed. So here, I grant passage to potent moments of learning in the long summer days, the hot summer nights, and the twilight zones in-between:
 
 &nbsp;
 
