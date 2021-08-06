@@ -39,3 +39,5 @@ When the hot sun comes out, I lay my sandals on the rock to “disinfect” them
 
 \
 **Dangerous gifts from mycelial gods:** X and I stumble onto the fruiting bodies of black trumpet, chanterelle and lobster mushrooms on a hike. Laughing with delight, we pick them and gently bundle the funghi treasures into our rain jacket hoods. When we get back to the island, I sit by a pot of water and carefully clean each mushroom, reverently picking off pieces of dirt and dead leaves for hours. I fry them on a cast-iron pan, and adorn them like sacred jewels on mac and cheese that comes out of a cardboard box. Dinner that evening is a sublime experience, tinged with the unsettling fear that it might be our last.
+
+![](/images/img-7757.jpg)
