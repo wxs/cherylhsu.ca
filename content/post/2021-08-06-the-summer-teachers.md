@@ -18,7 +18,9 @@ While I’m floating, I learn from *lingering*. Reading Byung-Chul Han:
 > \
 > -- Byung-Chul Han, *The scent of time: a philosophical essay on the art of lingering* 
 
-When I linger, quieter, more-than-human teachers are revealed. And here, I grant passage to potent moments of learning in the long summer days, the hot summer nights, and the twilight zones in-between:
+When I linger, other more-than-human teachers are revealed. And here, I grant passage to potent moments of learning in the long summer days, the hot summer nights, and the twilight zones in-between:
+
+&nbsp;
 
 **Fruits of concrete jungles:** I walk outside and steal a raspberry from the neighbour’s bush every morning on the way to and from the cafe, letting the tartness pucker my tongue and water my mouth. Finding fruit in the city makes me a child again. Even after washing my hands, the skin on my fingers and palms are stained purple from the mulberry trees that line the railpath.
 
