@@ -18,7 +18,7 @@ They don't tell you that breaks are where the most subtle forms of learning happ
 > \
 > -- Byung-Chul Han, *The scent of time: a philosophical essay on the art of lingering* 
 
-When I linger, an ecology of more-than-human teachers are revealed. So here, I grant passage to potent moments of learning in the long summer days, the hot summer nights, and the twilight zones in-between:
+When I linger, a wild ecology of more-than-human teachers is revealed. So here, I grant passage to potent moments of learning in the long summer days, the hot summer nights, and the twilight zones in-between:
 
 &nbsp;
 
