@@ -8,8 +8,6 @@ I remember how at the beginning of summer, I would be simultaneously thrilled an
 
 I want my summer to feel saturated with presence. So I've embraced a quiet transition, sinking into the desire to attend less talks, read less, work less, cull the activities filling my schedule. My reservoir is brimming full, and I follow the Tao to move less like a coursing river, but become still. And where water is still, *unexpected lifeforms begin to find home.* The environment becomes thicker, murkier, swampier: water lilies spiral up from the nutritious mud, reeds and brown cattails sway with the persistent hum of mosquitoes and flies, cormorants and herons swoop in with their massive wingspans to pluck fish from the water. So I become a lazy, swaying wetland -- a transitional eco-tone feeding and breeding organisms. 
 
-
-
 ![](/images/img-7977.jpg)
 
 I write, but journal meanderingly, privately. Mostly, I’ve been floating on the shallow surface of a lake -- closing my eyes and feeling the summer sun bake the top of my body brown. On the flip side, the other(secret) half is submerged in the cold water. A grey fish nibbles at my feet, startling me -- I feel the frisson of nervousness, the uncanny reminder of the other creatures that lurk below, hiding in the dark ecology of mud and seaweed. But I don’t feel ready to dive yet. 
@@ -22,8 +20,6 @@ While I’m floating, I learn from *lingering*. Reading Byung-Chul Han:
 
 When I linger, quieter, more-than-human teachers are revealed. And here, I grant passage to potent moments of learning in the long summer days, the hot summer nights, and the twilight zones in-between. 
 
-![]()
-
 * **Fruits of concrete jungles:** I walk outside and steal a raspberry from the neighbour’s bush every morning on the way to and from the cafe, letting the tartness pucker my tongue and water my mouth. Finding fruit in the city makes me a child again. Even after washing my hands, the skin on my fingers and palms are stained purple from the mulberry trees that line the railpath.
 * **Metal shells and soft bodies:** While I’m biking narrowly between parked cars and cacophonous traffic on a Saturday, a driver flings open his door without looking. I am stunned by the sudden contact of my face with the car door -- the impact snapping my head back, the softness of my flesh yielding, ruptured by hard metal. The power asymmetry made apparent between the metal car and my vulnerable body. \
   \
@@ -34,6 +30,4 @@ When I linger, quieter, more-than-human teachers are revealed. And here, I grant
 * **Sweaty dirt and pungent funk:** I’m always amazed by how casually dirty I become when I’m camping: the brown crescent of my fingernails, the smell of my own sweat while I’m washing the dishes with green lake water. It rains in the first two days of our trip and in the thick humidity, my water sandals seem to have nursed bacterial lifeforms that emanate a sweet-sour funk. My nose immediately wrinkles, my olfactory senses offended. But then I close my eyes, tracing the winding path of pungent aroma to wonder the roots of modern society’s *obsession* with cleanliness and hygiene; the deeply entrenched classism and human-centrism of judging certain odours and smells as “dirty”, “poor”, “low”, and “animal”; the scene from Bong-Joon Ho’s Parasite: *“You know when you boil a rag? It smells like that."* I think about Meowbot, and how her nose adorably twitches to experience the world. \
   \
   When the hot sun comes out, I lay my sandals on the rock to “disinfect” them. Afterwards, when I shower at home, the water runs brown.  
-
-
 * **Dangerous gifts from mycelial gods:** X and I stumble onto the fruiting bodies of black trumpet, chanterelle and lobster mushrooms on a hike. Laughing with delight, we pick them and gently bundle the funghi treasures into our rain jacket hoods. When we get back to the island, I sit by a pot of water and carefully clean each mushroom, reverently picking off pieces of dirt and dead leaves for hours. I fry them on a cast-iron pan, and adorn them like sacred jewels on mac and cheese that comes out of a cardboard box. Dinner that evening is a sublime experience, tinged with the fear that it might be our last.
