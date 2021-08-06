@@ -2,7 +2,7 @@
 title: "The summer teachers "
 date: 2021-08-06T15:20:21.144Z
 ---
-Following this loose, unfolding structure of a self(soul)-directed masters, I’ve given myself a “summer break” by tasting the sun-soaked madeleine of school-age youth, the familiar stretch and restless boredom of it. Languid laziness pierced through with the nagging feeling that I need to do something with my time, make important memories.  
+Following this loose, unfurling structure of a self(soul)-directed masters, I’ve given myself a “summer break” by tasting the sun-soaked madeleine of school-age youth, the familiar stretch and restless boredom of it. Languid laziness pierced through with the nagging feeling that I need to do something with my time, make important memories.  
 
 I remember how at the beginning of summer, I would be simultaneously thrilled and impatient about the *potentiality* of the two-month break. It takes a period of time (usually several weeks) for my body to relax into the summer vibe, to let the anxieties of school drip from my skin. And then -- somewhere mid-way between July and August -- I’m no longer *longing* for summer, but finally, deliciously, *present with summer*. This occurs for a few blissful days, before I catch myself already mourning the end of it.
 
