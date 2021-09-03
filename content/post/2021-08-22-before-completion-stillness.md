@@ -19,17 +19,17 @@ On the second day of meditation, words surfaced and made deep, vibrating contact
 
 And yet, the sovereign **choice** I made to come here is wrapped in many nuanced layers of justification that feel reasonable, that tell me that I am making the right decision: 
 
-**\**
+\*\*\*\*
 
 ### **I want to make change:** 
 
-Even with the hesitation of a secular self, this is a Buddhist monastic training centre grounded with a powerful focus on relating change in inner awareness with change in the world, in order to “create leaders who are capable of transforming the untransformable.” I’ve been working as a systemic designer in social systems seeking pathways to transition and hitting walls, until I realized that the interventions -- policies, resource flows, behavioural and narratives shifts -- required in our external systems need to interweave with our internal systems. As Donella Meadows describes, the most effective place to intervene in a system is *“The mindset or paradigm out of which the system — its goals, power structure, rules, its culture — arises.”* I must leave behind the business models and academic maps to follow my longing for how deep it must go, how deeply we must let go in the entangled depths of psyche, the dimensions of the cosmological and the spiritual. 
+Even with the hesitations of my secular self, I recognize that this is a Buddhist monastic training centre grounded with a focus on relating change in inner awareness *with change in the world*, in order to “create leaders who are capable of transforming the untransformable.” I’ve been working as a systemic designer in social systems for so long, seeking pathways to transition and hitting walls, until I realized that the interventions -- policies, resource flows, behavioural and narratives shifts -- required in our external systems need to interweave with our internal systems. As Donella Meadows describes, the most effective place to intervene in a system is *“The mindset or paradigm out of which the system — its goals, power structure, rules, its culture — arises.”* I must leave behind the business models and academic maps to follow my longing for how deep it must go, how deeply we must let go in the entangled depths of psyche, the dimensions of the cosmological and the spiritual. 
 
 ### **I can no longer turn away:**
 
 There is immeasurable pain in the world: our ecosystems are collapsing, forests are burning, species are dying, people are harming each other and themselves. There is so much pain that in the moments where I do make contact, my entire body is electrocuted with it, seizing up with such intense agony and overwhelming sorrow that I fall apart. I am terrified. I feel immature and unskillful, developing coping mechanisms to look away and numb myself. \
 \
-But I feel ready to look now: I am a small but mighty part of a larger organism going through collapse and transformation. I need to crack through and compost the human systems and lifeworlds that I’ve been clinging to for so long, my entitlements what success means, around how to live a good and comfortable life.  I cannot be attached to systems that I know cause so much pain. I cannot turn away from ecological devastation and its continuing impacts to life on the planet. And I’m beginning to trust that in the grief, there is a kernel of something indescribably beautiful: by opening up to my capacity to witness and hold pain, I come into clear relationship with joy, the love and the beauty that I want to preserve, and nourish in the world. To invite in planetary consciousness is to fall in love with the world. 
+But I feel ready to look now: I am a small but mighty part of a larger organism going through collapse and transformation. I need to crack through and compost the human systems and lifeworlds that I’ve been clinging to for so long, my entitlements to what success means, around how to live a good and comfortable life.  I cannot be attached to systems that I know cause so much pain. I cannot turn away from ecological devastation and its continuing impacts to life on the planet. And I’m beginning to trust that in the grief, there is a kernel of something indescribably beautiful: by opening up to my capacity to witness and hold pain, I come into clear relationship with joy, the love and the beauty that I want to preserve and nourish in the world. To invite in planetary consciousness is to fall in love with the world. 
 
 ### **I need to pause:**
 
@@ -39,10 +39,9 @@ I created the container of this self-directed masters to honour a space to crack
 
 The advise is clear: slow down, pause and be still. This is the time to allow my awareness to be like the surface of a still lake -- what my Taoist ancestors call the mirror mind -- to reflect what needs to be witnessed, so that I can respond appropriately. So that I may cultivate response-ability. 
 
-\
------------
+## \
 
-And still, while sharing these reasons that I can utter and language into words -- I want to change, I cannot turn away, I need to pause -- I notice there are so many "I"s, so much self. And the statement continues with its sonorous ring: *“I know I’m supposed to be here, but I don’t know Why.”* 
+And still, while sharing these reasons that I can utter and language into words -- *I* want to change, *I* cannot turn away, *I* need to pause -- I notice there are so many "I"s, there is so much self. And the statement continues with its sonorous ring: *“I know I’m supposed to be here, but I don’t know Why.”* 
 
 I don’t know **Why.** So I'll leap over the edge into this yawning chasm. 
 
@@ -50,9 +49,9 @@ I don’t know **Why.** So I'll leap over the edge into this yawning chasm. 
 
 And when I first arrived, I was calm. I didn’t experience the flutters of nervousness and fear that I associate with the first days of school, job or joining a new team. I felt the *rightness* immediately, the deep resonance in my soul attuned to harmony. This deep and subtle sense that: **“Yes, you’re supposed to be here.”** Here, at Willow, right now, *present here.* And meeting seven strangers felt immediately familiar, as though I could access a felt sense of the potentiated future in the present. *As though being here is already enfolded within me.* 
 
-I have surrendered fully to the monastic schedule and the frugal lifestyle, and I feel joy. I don't feel the resistances and cravings that I had anticipated: no attachments to sleep in, to drink wine, to eat cheese, to check my phone.
+I have surrendered fully to the strict monastic schedule and frugal lifestyle, and I feel joy. I don't feel the resistances and cravings that I had anticipated: no attachments to sleep in, to drink wine, to eat cheese, to check my phone.
 
-And this powerful sense of *rightness* continues to feel so easeful, so unfettered, so *whole*, that a part of me is terrified -- a part that is deeply attached to *my* autonomy, *my* agency, *my* choice.  I want to laugh and sob at the same time. So many decisions in my life has relied on observing and synthesizing assessments and external validations of what is “right”, what is “good”, what is “reasonable”. So coming here has a touch of *madness* to it. 
+And this powerful sense of *rightness* continues to feel so easeful, so unfettered, so *whole*, that a part of me is terrified -- a part that is deeply attached to *my* autonomy, *my* agency, *my* choice.  I want to laugh and sob at the same time. So many decisions in my life have relied on observing and synthesizing assessments and external validations of what is “right”, what is “good”, what is “reasonable”. So coming here has a touch of *madness* to it. 
 
 And yet, the words of Akira Kurosawa come to mind: *“In a mad world, only the mad are sane.”* 
 
