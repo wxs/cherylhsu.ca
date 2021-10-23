@@ -16,9 +16,9 @@ Nathan, another resident who drums while I chant, walks by and pipes in: “I do
 
 I feel frustrated at him and argue back: “Nathan. I’m *pushing as hard as I can*. You have to meet me in the middle.” 
 
-Virabahdra interrupts with gentle firmness: “Cheryl, you are the chant-leader. It is your role to lead and harmonize the group. You have to chant as energetically as possible, while bringing the group together into collective samadhi. This is the tension you must hold: You have to listen at the same time as you lead. 
+Virabahdra interrupts with gentle firmness: “Cheryl, you are the chant-leader. It is your role to lead and harmonize the group. You have to chant as energetically as possible, while bringing the group together into collective samadhi. This is the tension you must hold: You have to listen at the same time as you lead."
 
-*You have to balance power with harmonization*.” 
+*"You have to balance power with harmonization*.” 
 
 &nbsp;
 
