@@ -2,7 +2,7 @@
 title: Singing the Body Electric
 date: 2021-10-07T16:34:53.618Z
 ---
-![](/images/screen-shot-2021-09-30-at-12.56.10-pm.png)
+![]()
 
 &nbsp;
 
