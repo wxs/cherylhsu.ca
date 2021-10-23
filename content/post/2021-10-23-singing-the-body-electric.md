@@ -6,7 +6,7 @@ date: 2021-10-07T16:34:53.618Z
 
 &nbsp;
 
-At Willow Monastic Academy, I lead chanting every day. My voice begins to break, cracking from the effort. 
+At [Willow Monastic Academy](https://growingwillow.org/), I lead chanting every day. My voice begins to break, cracking from the effort. 
 
 The head monk, Virabahdra, draws me aside in the afternoon to give me feedback. He tells me: “ I want to hear your voice and energy more. Remember -- chant like you’re about to have an existential crisis.”  
 
@@ -34,7 +34,7 @@ One can easily feel the daily monastic schedule to be *relentless.* It is firm a
 
 And yet, rocking between calm waters and stormy seas, the strict schedule becomes as much  *anchor* as prison. It is a steady container to hold the intensity of waves that pass through. 
 
-Willow’s three month intensive program centres around the practice of **harmonization**: to skillfully move between tension and release, stuckness and flow, contraction and expansion. Ryushin Daniel Thorsen teaches it as an ecology of practices that cultivates one to become an *“omni-harmonization agent”:* a person who can step into any system across scales -- a family, an organization or social system -- and attenuate it towards greater harmony. Over the past 9 weeks, we’ve been training across what Ryu refers to as the ***five aspects of reality*: Energy Body, Psyche, Relationality, Ethics,** and **Emptiness.**
+Willow’s three month intensive program centres around the practice of **harmonization**: to skillfully move between tension and release, stuckness and flow, contraction and expansion. Ryushin Daniel Thorsen models and teaches it as an ecology of practices that cultivates one to become an *“omni-harmonization agent”:* a person who can step into any system across scales -- a family, an organization or social system -- and attenuate it towards greater harmony. Over the past 9 weeks, we’ve been training across what Ryu refers to as the ***five aspects of reality*: Energy Body, Psyche, Relationality, Ethics,** and **Emptiness.**
 
 &nbsp;
 
