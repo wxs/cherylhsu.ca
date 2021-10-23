@@ -162,7 +162,7 @@ Rob Burbea says:
 
 When I whisper the words to myself *“I sing the body electric”, I* fall in love with an image of all of us -- Seishin, Ryu, Nathan, Virabhadra, Dana and Diane -- *harmonizing our collective body electric* through our chanting, training and practicing together. Whatever is happening within the alchemy of this collective body is mysterious, but it feels to be the work of what Rob Burbea calls *cosmopoiesis*: the unfolding and manifestation of new worlds, the creation of sacred universes that we en-*chant* into being. 
 
-When we stepped into the Willow intensive on August 11, 2021 for three months, we crossed a threshold and into an alchemical container. We did it because we knew we needed to let go of something: we needed to burn away the dross of old stories and attachments that no longer serve us and life on this planet. We wake up before dawn, we train intensively, we sob and hold each other through healing trauma. We work hard, and we love hard. 
+When we stepped into the Willow intensive on August 11, 2021 for three months, we crossed a threshold and into an alchemical container. We took this leap of faith knowing that we needed to let something go: we needed to burn away the dross of old stories and attachments that no longer serve us and life on this planet. So we wake up before dawn, we train intensively, we sob and hold each other through healing trauma. We work hard, and we love hard. 
 
 And we endure through the excruciating burn, the tender ache of the work, *because of what is revealed*: insights that burn like a bright, shining flame. Rising out of the ashes, something worth loving. 
 
