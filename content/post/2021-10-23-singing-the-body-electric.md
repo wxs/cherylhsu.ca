@@ -146,7 +146,7 @@ I came to feel the *fiery burn of love*, made more fierce and rich because it co
 
 # **Re-en\[chanting] the world** 
 
-Being chant-leader at Willow has been subtly reshaping me everyday, building range in my voice and breath, cultivating energy in my body. I responded lightly when the role was first offered to me. “Sure, I’ll lead chanting,” I said with a slight shrug. It was more additional work, memorizing and guiding the seven chants that begin and end our day, but easy enough. 
+Being chant-leader at Willow has been subtly reshaping me everyday, building range in my voice and breath, cultivating energy in my body. I responded lightly when the role was first offered to me. “Sure, I’ll lead chanting,” I said with a slight shrug. It was more additional work, memorizing and guiding the seven chants that begin and end our day, but seemed easy enough. 
 
 Virabhadra, who had held the chant-leading role, steadily emphasized that the chant-leader is often considered the most important position in a monastery. The mantras that we chant and come from a deep and time-honoured lineage of Buddhism, crossing languages from Pāli to English to Japanese. Everyday, I must honour and draw from this ancient lineage, harmonizing with the echoes of the ancestors who have chanted these words before. 
 
