@@ -14,7 +14,11 @@ I feel frustrated at him and argue back: “Nathan. I’m *pushing as hard as I 
 
 Virabahdra interrupts with gentle firmness: “Cheryl, you are the chant-leader. It is your role to lead and harmonize the group. You have to chant as energetically as possible, while bringing the group together into collective samadhi. This is the tension you must hold: You have to listen at the same time as you lead. *You have to balance power with harmonization*.” 
 
-## **The Art of Harmonization**
+&nbsp;
+
+&nbsp;
+
+# **The Art of Harmonization**
 
 I’ve been at Willow Monastic Academy for three quarters of a 3-month residential program, allowing the time and space to fully sink into the embodiment, the *deep praxis* of training here. At Willow, the scholarship of my self-directed masters becomes *immersive field study*: theory translates into the intense rigour and discipline of everyday, relational practice. 
 
@@ -26,7 +30,7 @@ And yet, rocking between calm waters and stormy seas, the strict schedule become
 
 Willow’s three month intensive program centres around the practice of **harmonization**: to skillfully move between tension and release, stuckness and flow, contraction and expansion. Ryushin Daniel Thorsen teaches it as an ecology of practices that cultivates one to become an *“omni-harmonization agent”:* a person who can step into any system across scales -- a family, an organization or social system -- and attenuate it towards greater harmony. Over the past 9 weeks, we’ve been training across what Ryu refers to as the ***five aspects of reality*:** 
 
-
+&nbsp;
 
 ### **Energy body:**  
 
@@ -38,7 +42,9 @@ As I deepen my meditation practice, I encounter moments of quiet harmony where t
 
 As I spend more time practicing with the energy body, I’ve come to trust it as the compass of my deepest intuition and discernment, uncovering the path through following resonance and longing. It allows me to be *brave*. By trusting in my body’s innate capacity for wisdom and well-being, it stretches my courage to *intensify my compassion*, building my strength and resilience to lean into the pain of deeply loving.
 
-### **Psyche / psycho-emotional:** 
+&nbsp;
+
+### **Psyche / psycho-emotional:**
 
 In this intensive, the value of healing intertwines with the path of awakening. In meditation, dyads and group circles, we work through emotional and trauma healing through relational support and the healing power and wisdom of the body. With care and gentleness, we integrate powerful psycho-technologies such as: 
 
@@ -50,7 +56,9 @@ These therapeutic practices empower** *self-healing***: equipping us with the to
 
 Relating with the entangled depths of psyche is also a process of **soul-making**, as I explore through Rob Burbea’s *Soulmaking Dharma* and *Imaginal meditation practice.* When I sink and dance in the realm of the soul -- *turning towards* the dark, tortured depths of its anguish and pathologies -- I come to fall in love with the potent images and the Imaginal figures that arise from my mysteries of my psyche. I come to find the gifts in the wounds -- the seed of divine longing *\[how am I called to serve?]* in the heated clench of clinging and attachment.
 
-### Relationality: 
+&nbsp;
+
+### Relationality:
 
 The foundation of our relational practice is [Circling](https://circlinginstitute.com/what-is-circling-method/), a relational modality where we share from what is *most alive and arises* in any given moment. We commit to speaking from what is present --  even if it’s awkward, effusive, or uncomfortable. During evening group practice: when someone is bored, they say it. When someone is feeling guarded and contracted, they name it. I found a part in me that wanted to be articulate and "nice" resisting the vulnerability of this process at first, nervous to admit the less-than-perfect tensions and judgements happening in me. 
 
@@ -58,9 +66,9 @@ And yet, circling has a revelatory quality that allows us to shift from pre-cons
 
 In this intensive, training in relationality is not limited to group activities in the zendo, but in the quotidian experiences of cohabitation together. I have never spent this much non-stop, dedicated time with the same people before -- working, training, living and playing in the same container. We practice when we eat lunch together, when we wash the dishes together, when we fight together, when we make generous amounts of popcorn and watch a movie together. Living at Willow is to meet the every day work of coming into harmonious entanglement with seven strangers, who over time, become beloved friends. 
 
+&nbsp;
 
-
-### Ethics: 
+### Ethics:
 
 Throughout my life, I’ve had a troubled relationship with ethics. Steeped in the stew of cynical postmodernism, I’ve been suspicious of moral certitude, sniffing out the lingering shadows of colonialism in any prescriptive narrative for how we must act in the world. And yet deep within me, I also feel called towards *goodness* -- *there is a longing in me to live a life that leads to more goodness, truth and beauty in the world.* 
 
@@ -71,6 +79,8 @@ We explore the ethics of right action by uncovering one’s *most vital values*,
 I have come to see my *ethos* as flowing with *eros* -- I unfold with what enables me *to love more deeply* as a fluid, living path. This ethical path makes demands of me that I willingly serve. My struggles become meaningful. My sacrifices become sacred. My values weave through the rivers and tissues of my body --  they become the compass by which I feel sinking, painful remorse when I fall short of my duty, that motivates me to learn from my mistakes and become more skillful moving forward. 
 
 I come into harmony with ethics when I am brave enough to ask myself: *what is the world that I long for, deeply in my soul?* And how do I meaningfully create and live in that world right now, *in the present moment?*
+
+&nbsp;
 
 ### **Emptiness / Insight:** 
 
@@ -88,10 +98,11 @@ It can be easy to confuse Emptiness for a kind of nihilistic nothingness -- perh
 
 There is wonder and beauty in emptiness. What happens when we come to know that everything we experience is *timelessly ephemeral* -- as fleeting as a “tiny drop of dew or a bubble floating in a stream”? I treasure each moment as a gift. I become *wholly intimate* with each experience that arises and passes away. 
 
+&nbsp;
 
+&nbsp;
 
-## \
-**The worthwhile struggle of loving**  
+# **The worthwhile struggle of loving**  
 
 So what makes all of this work, the discipline and struggle of it, *worthwhile?* 
 
@@ -123,8 +134,11 @@ I realize that I decided to stay at a Buddhist monastery not because I seek a li
 
 I came to feel the *fiery burn of love*, made more fierce and rich because it co-arises with pain of pathos and the weight of responsibility. And I came to learn how to hold the fire *wisely*: to become a vessel that is strong enough to contain the heat, to know when to cool it with emptiness, and to know how to *feed it with my soul’s longing.* 
 
-## \
-**Re-en\[chanting] the world** 
+&nbsp;
+
+&nbsp;
+
+# **Re-en\[chanting] the world** 
 
 Being chant-leader at Willow has one of the roles that has been subtly reshaping me everyday, building range in my voice and breath, cultivating energy in my body. I responded lightly when the role was offered to me. “Sure, I’ll lead chanting,” I said with a slight shrug. It felt like more additional work, memorizing and guiding the seven chants that begin and end our day, but easy enough. 
 
