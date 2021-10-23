@@ -26,7 +26,7 @@ Virabahdra interrupts with gentle firmness: “Cheryl, you are the chant-leader.
 
 # **The Art of Harmonization**
 
-I’ve been at Willow Monastic Academy for three quarters of a 3-month residential program, allowing the time and space to fully sink into the embodiment, the *deep praxis* of training here. At Willow, the scholarship of my self-directed masters becomes *immersive field study*: theory translates into the intense rigour and discipline of everyday, relational practice. 
+I’ve been at Willow Monastic Academy for three quarters of a 3-month residential program, allowing the time and space to fully sink into the embodiment, the *deep praxis* of training here. At Willow, the scholarship of my [soul-directed masters](https://cherylhsu.ca/pages/about/) becomes *immersive field study*: theory translates into the intense rigour and discipline of everyday, relational practice. 
 
 At Willow, I wake up at *4:45am,* chant and meditate from *5am - 6:30am*, exercise from *6:30-7:30am,* before we eat breakfast in noble silence. At *8:20am* after a morning check-in and meeting, we enter a responsibility period where we work on Willow-related projects (ranging from strategic planning and fundraising to mowing the lawn and laying down floors) until *1pm*, when we eat lunch together in silent practice. After 15 minutes of chores, we have three glorious hours of personal practice from *2-5pm* -- where I go for walks in the forest, lie on the grass or have calls -- before we enter group practice from *5-7:30pm*. We meditate and chant to end the evening at 8:30pm. On a good night, I carry the samadhi cultivated to bed, falling asleep the moment that my head hits the pillow. 
 
@@ -136,7 +136,7 @@ I embrace harmonization as **art,** as *cosmopoietic sacred play* -- a dance tha
 
 The art that is meaningful to us is the music that moves us to tears, it is the dance that pulls us into the exuberance of effervescent joy, the movement of alive muscles and sensual energy. We play and create by following *eros.* 
 
-I realize that I decided to stay at a Buddhist monastery not because I seek a life of perfect equanimity, or to finally escape the cycles of worldly samsara into awakening. *I came to passionately fall in love with the world so that I can serve it.* My deeper felt sense of time at Willow is not linear, but *spirals*: in slow, devotional circles around Riilke’s primordial tower; or with swirling intensity like a vortex, fiercely coiling energy and heat around my soul’s calling as strange attractor. 
+I realize that I decided to stay at a Buddhist monastery not because I seek a life of perfect equanimity, or to finally escape the cycles of worldly samsara into awakening. *I came to passionately fall in love with the world so that I can serve it.* My deeper felt sense of time at Willow is not linear, but *spirals*: in slow, devotional circles around Riilke’s primordial tower; or with swirling intensity like a vortex, fiercely coiling energy and heat around my soul’s calling as [strange attractor](https://cherylhsu.ca/post/2020-11-18-becoming-strange-attractor/). 
 
 I came to feel the *fiery burn of love*, made more fierce and rich because it co-arises with pain of pathos and the weight of responsibility. And I came to learn how to hold the fire *wisely*: to become a vessel that is strong enough to contain the heat, to know when to cool it with emptiness, and to know how to *feed it with my soul’s longing.* 
 
@@ -160,7 +160,7 @@ Rob Burbea says:
 
 > ***“Through my enchanting, through my singing, through my conjuring of consciousness, of reception, through the magic spell that I’m playing with in my awareness, I sing my body electric. I sing it into being.”***  
 
-When I whisper the words to myself *“I sing the body electric”, I* fall in love with an image of all of us -- Seishin, Ryu, Nathan, Virabhadra, Dana and Diane -- *harmonizing our collective body electric* through our chanting, training and practicing together. Whatever is happening within the alchemy of this collective body is mysterious, but it feels to be the work of what Rob Burbea calls *cosmopoiesis*: the manifestation of new worlds, the creation of sacred universes that we en-*chant* into being. 
+When I whisper the words to myself *“I sing the body electric”, I* fall in love with an image of all of us -- Seishin, Ryu, Nathan, Virabhadra, Dana and Diane -- *harmonizing our collective body electric* through our chanting, training and practicing together. Whatever is happening within the alchemy of this collective body is mysterious, but it feels to be the work of what Rob Burbea calls *cosmopoiesis*: the unfolding and manifestation of new worlds, the creation of sacred universes that we en-*chant* into being. 
 
 When we stepped into the Willow intensive on August 11, 2021 for three months, we crossed a threshold and into an alchemical container. We did it because we knew we needed to let go of something: we needed to burn away the dross of old stories and attachments that no longer serve us and life on this planet. We wake up before dawn, we train intensively, we sob and hold each other through healing trauma. We work hard, and we love hard. 
 
