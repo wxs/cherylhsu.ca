@@ -2,6 +2,8 @@
 title: Singing the Body Electric
 date: 2021-10-07T16:34:53.618Z
 ---
+&nbsp;
+
 At Willow Monastic Academy, I lead chanting every day. My voice begins to break, cracking from the effort. 
 
 The head monk, Virabahdra, draws me aside in the afternoon to give me feedback. He tells me: “ I want to hear your voice and energy more. Remember -- chant like you’re about to have an existential crisis.”  
@@ -12,7 +14,9 @@ Nathan, another resident who drums while I chant, walks by and pipes in: “I do
 
 I feel frustrated at him and argue back: “Nathan. I’m *pushing as hard as I can*. You have to meet me in the middle.” 
 
-Virabahdra interrupts with gentle firmness: “Cheryl, you are the chant-leader. It is your role to lead and harmonize the group. You have to chant as energetically as possible, while bringing the group together into collective samadhi. This is the tension you must hold: You have to listen at the same time as you lead. *You have to balance power with harmonization*.” 
+Virabahdra interrupts with gentle firmness: “Cheryl, you are the chant-leader. It is your role to lead and harmonize the group. You have to chant as energetically as possible, while bringing the group together into collective samadhi. This is the tension you must hold: You have to listen at the same time as you lead. 
+
+*You have to balance power with harmonization*.” 
 
 &nbsp;
 
