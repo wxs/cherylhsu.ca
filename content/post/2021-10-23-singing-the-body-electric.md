@@ -52,7 +52,7 @@ As I spend more time practicing with the energy body, I’ve come to primally tr
 
 ### **Psyche / psycho-emotional:**
 
-In this intensive, the value of healing intertwines with the path of awakening. In meditation, dyads and group circles, we work through emotional and trauma healing through relational support and the healing power and wisdom of the body. With care and gentleness, we integrate powerful psycho-technologies such as: 
+In this intensive, the value of healing intertwines with the path of awakening. In meditation, dyads and group circles, we work through emotional and trauma healing through relational support and the healing wisdom of the body. With care and gentleness, we integrate powerful psycho-technologies such as: 
 
 * [ Internal Family Systems (IFS)](https://en.wikipedia.org/wiki/Internal_Family_Systems_Model) -- A psychotherapeutic model that pluralizes the self as a system of parts with distinct roles and personalities. These parts relate with each other like a family, and can work together harmoniously, or clash and disagree with each other. 
 * [Gendlin focussing](https://en.wikipedia.org/wiki/Focusing_(psychotherapy)) -- A method of tapping into felt sense by noticing what is present in the body, and relating to it by speaking to it and seeking resonance.  
