@@ -162,4 +162,10 @@ When I whisper the words to myself *“I sing the body electric”*: I fall in l
 
 When we stepped into the Willow intensive on August 11, 2021 for three months, we crossed a threshold and into an alchemical container. We did it because we knew we needed to let go of something: we needed to burn away the dross of old stories and attachments that no longer serve us and life on this planet. We wake up before dawn, we train intensively, we sob and hold each other through healing trauma. We work hard, and we love hard. 
 
-And we endure through the excruciating burn, the tender ache of the work, *because of what is revealed*: insights that burn like a bright, shining flame. Rising out of the ashes, something worth loving. *A soul song worth singing.*
+And we endure through the excruciating burn, the tender ache of the work, *because of what is revealed*: insights that burn like a bright, shining flame. Rising out of the ashes, something worth loving. 
+
+*A soul song worth singing.*
+
+&nbsp;
+
+![](/images/image-from-ios.jpg)
