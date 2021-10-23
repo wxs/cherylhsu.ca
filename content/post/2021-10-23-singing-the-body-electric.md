@@ -154,7 +154,7 @@ I quickly learned about the vulnerability of chanting. When I don’t put energy
 
 Since I’ve been here, I’ve been repeating a mantra to myself: **“I sing the body electric.”** It is the title of a poem written by Walt Whitman, arrived to me from the dharma teacher Rob Burbea in his retreat “[Re-Enchanting the Cosmos](https://dharmaseed.org/retreats/3049/)”. Rob passed away last year, but has been alive for me as a teacher throughout this intensive, encountered through his recordings and in the realms of the Imaginal. 
 
-Rob connects the practice of *enchantment* to *chanting*, noting its relationship with the French word chanter, meaning *to sing*. When we chant and sing, we tune the frequencies of sound and words towards something *beautiful,* we breathe air into the alchemy of our bodies and transform them into song. We enchant vibrations with meaning, wonder and mystery.
+Rob connects the practice of *enchantment* to *chanting*, noting its relationship with the French word *chanter,* meaning ***to sing***. When we chant and sing, we tune the frequencies of sound and words towards something *beautiful,* we breathe air into the alchemy of our bodies and transform them into song. We enchant vibrations with meaning, wonder and mystery.
 
 Rob Burbea says: 
 
