@@ -1,5 +1,5 @@
 ---
-title: Singing the Body Electric
+title: Harmonizing the Body Electric
 date: 2021-10-07T16:34:53.618Z
 ---
 ![]()
@@ -32,7 +32,7 @@ At Willow, I wake up at *4:45am,* chant and meditate from *5am - 6:30am*, exerci
 
 One can easily feel the daily monastic schedule to be *relentless.* It is firm and unyielding to shifting moods and weather patterns: whether I wake up energetic and well-rested,  or exhausted from the maelstrom of unexpected emotion -- I must show up. Especially now as chant leader, nothing is hidden. The group hears and is impacted by any constriction or distraction in my voice. Morning chanting is the first challenge I meet in my training every day, of setting aside a tender ego to serve the work of cultivating collective harmony. 
 
-And yet, rocking between calm waters and stormy seas, the strict schedule becomes as much  *anchor* as prison. It is a steady container to hold the intensity of waves that pass through. 
+And yet, rocking between calm waters and stormy seas, the strict schedule becomes as much  *anchor* as prison. It is a steady container to hold the intensity of waves that crash through. 
 
 Willow’s three month intensive program centres around the practice of **harmonization**: to skillfully move between tension and release, stuckness and flow, contraction and expansion. Ryushin Daniel Thorsen models and teaches it as an ecology of practices that cultivates one to become an *“omni-harmonization agent”:* a person who can step into any system across scales -- a family, an organization or social system -- and attenuate it towards greater harmony. Over the past 9 weeks, we’ve been training across what Ryu refers to as the ***five aspects of reality*: Energy Body, Psyche, Relationality, Ethics,** and **Emptiness.**
 
@@ -160,7 +160,7 @@ Rob Burbea says:
 
 > ***“Through my enchanting, through my singing, through my conjuring of consciousness, of reception, through the magic spell that I’m playing with in my awareness, I sing my body electric. I sing it into being.”***  
 
-When I whisper the words to myself *“I sing the body electric”*: I fall in love with an image of all of us -- Seishin, Ryu, Nathan, Virabhadra, Dana and Diane -- singing our collective body electric through our chanting, training and practicing together everyday. Whatever is happening within the alchemy of this collective body is mysterious, but it feels to be the work of what Rob Burbea calls *cosmopoiesis*: the manifestation of new worlds, the creation of sacred universes that we en-*chant* into being. 
+When I whisper the words to myself *“I sing the body electric”, I* fall in love with an image of all of us -- Seishin, Ryu, Nathan, Virabhadra, Dana and Diane -- *harmonizing our collective body electric* through our chanting, training and practicing together. Whatever is happening within the alchemy of this collective body is mysterious, but it feels to be the work of what Rob Burbea calls *cosmopoiesis*: the manifestation of new worlds, the creation of sacred universes that we en-*chant* into being. 
 
 When we stepped into the Willow intensive on August 11, 2021 for three months, we crossed a threshold and into an alchemical container. We did it because we knew we needed to let go of something: we needed to burn away the dross of old stories and attachments that no longer serve us and life on this planet. We wake up before dawn, we train intensively, we sob and hold each other through healing trauma. We work hard, and we love hard. 
 
