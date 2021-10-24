@@ -102,7 +102,7 @@ It can be easy to confuse Emptiness for a kind of nihilistic nothingness -- perh
 
 > *“This is how to contemplate our conditioned existence in this fleeting world: Like a tiny drop of dew, or a bubble floating in a stream; Like a flash of lightning in a summer cloud, Or a flickering lamp, an illusion, a phantom, or a dream.”*
 
-There is wonder and beauty in emptiness. What happens when we come to know that everything we experience is *timelessly ephemeral* -- as fleeting as a “tiny drop of dew or a bubble floating in a stream”? As Octavia Butler invokes, what if *God is change?* I am *present* with each moment as a divine gift. I become *wholly intimate* with each experience that arises and passes away. 
+There is wonder and beauty in emptiness. What happens when we come to know that everything we experience is *timelessly ephemeral* -- as fleeting as a “tiny drop of dew or a bubble floating in a stream”? As writer Octavia Butler invokes, what if *God is change?* I become *present* with each moment as a divine gift. I become *wholly intimate* with each experience that arises and passes away. 
 
 &nbsp;
 
