@@ -29,4 +29,14 @@ In March 2020, the pandemic provided the necessary rupture of the status quo, di
 
 Perhaps I am just telling a beautiful story here -- but I sense that cultivating and sourcing from the Mystery of the Soul allows us to swim into deeper potentialities, to enable the collective emergence and unfolding of plural possibilities, visions, and life worlds that feel unimaginable to us now. Stories are containers for us to make home and meaning in a groundless ground of post-truth and emptiness. As these stories resonate and endure, they sediment into lived ontologies, behaviours and materialities that design us back into ever-changing eddies and spirals of living and dying together. 
 
-So let’s design with mystery, shall we?
+*So let’s design with mystery, shall we?*
+
+
+
+\---- 
+
+*To name and acknowledge some **soul teachers** -- living, dead and imaginal-- sparkling like crystalline dew in the entangled web of a soul-directed masters:*\
+\
+adrienne maree brown, bayo akomolafe, bonitta roy, cristiano siri, daniel thorson, donna haraway, james hillman, jean gebser, nora bateson, ria baeck, rob burbea, sam hinds, ursula le guin, xavier snelgrove,\
+\
+mycelium and longing,
