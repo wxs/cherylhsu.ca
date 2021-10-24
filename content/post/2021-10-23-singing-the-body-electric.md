@@ -140,7 +140,7 @@ I realize that I decided to stay at a Buddhist monastery not because I seek a li
 
 My deeper felt sense of time at Willow is not linear, but *spirals*: in slow, devotional circles around Riilke’s primordial tower; or with swirling intensity like a vortex, fiercely coiling energy and heat around my soul’s calling as [strange attractor](https://cherylhsu.ca/post/2020-11-18-becoming-strange-attractor/). I came to meet *my Angel out ahead*, surrendering to what philosopher Jean Gebser calls *primordial trust* around a path that unfolds through rippling, widening circles. 
 
-I came to feel the *fiery burn of **planetary loving*****,** made more fierce and rich because it co-arises with pain of pathos and the weight of responsibility. And I came to learn how to hold the fire *wisely*: to become a vessel that is strong enough to contain the heat, to know when to cool it with emptiness, and to know how to *feed it with my soul’s longing.* 
+I came to feel the *fiery burn of **planetary loving*****,**made more *fierce and passionate* because it co-arises with pain of pathos and the weight of responsibility. And I came to learn *how to hold the fire wisely*: to become a vessel that is strong enough to contain the heat, to know when to cool it with Emptiness, and to know how to *feed it with my soul’s longing.* 
 
 &nbsp;
 
