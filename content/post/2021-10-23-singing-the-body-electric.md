@@ -98,11 +98,11 @@ At Willow, we practice meditating with the three characteristics of emptiness: 
 
 As someone working in and seeking systems change, I can’t help but witness the *clinging* in how I relate to the ecological, social, and spiritual crises that we are entangled in. I cling to the despair that these specific systems we need are stuck and broken. I am attached to the contracted urgency of the problems that must be solved. I become so obsessed and distracted with my suffering that I forget about *my capacity to love the world, and thereby remake it.*
 
-It can be easy to confuse Emptiness for a kind of nihilistic nothingness -- perhaps a flavour tasted in predominant scientific materialism -- and yet, it goes much deeper. For me, *radical fulfillment arises from emptiness.* Everything arising and passing away becomes imbued with an ever-present wholeness, a kind of divine meaningfulness. During our retreat, Ryu read a line from the Diamond Sutra of the Buddha:
+It can be easy to confuse Emptiness for a kind of nihilistic nothingness -- perhaps a flavour tasted in predominant scientific materialism -- and yet, it goes much deeper. For me, *radical fulfillment arises from emptiness.* Everything arising and passing away becomes imbued with an *ever-present wholeness,* with *sacred meaningfulness.* During our retreat, Ryu read a line from the Diamond Sutra of the Buddha:
 
 > *“This is how to contemplate our conditioned existence in this fleeting world: Like a tiny drop of dew, or a bubble floating in a stream; Like a flash of lightning in a summer cloud, Or a flickering lamp, an illusion, a phantom, or a dream.”*
 
-There is wonder and beauty in emptiness. What happens when we come to know that everything we experience is *timelessly ephemeral* -- as fleeting as a “tiny drop of dew or a bubble floating in a stream”? I treasure each moment as a gift. I become *wholly intimate* with each experience that arises and passes away. 
+There is wonder and beauty in emptiness. What happens when we come to know that everything we experience is *timelessly ephemeral* -- as fleeting as a “tiny drop of dew or a bubble floating in a stream”? As Octavia Butler invokes, what if *God is change?* I am *present* with each moment as a divine gift. I become *wholly intimate* with each experience that arises and passes away. 
 
 &nbsp;
 
