@@ -1,6 +1,6 @@
 ---
 title: Harmonizing the Body Electric
-date: 2021-10-27T16:34:53.618Z
+date: 2021-10-23T16:34:53.618Z
 ---
 ![]()
 
