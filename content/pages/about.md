@@ -31,12 +31,10 @@ Perhaps I am just telling a beautiful story here -- but I sense that cultivating
 
 *So let’s design with mystery, shall we?*
 
-
-
 \---- 
 
 *To name and acknowledge some **soul teachers** -- living, dead and imaginal-- sparkling like crystalline dew in the entangled web of a soul-directed masters:*\
 \
-adrienne maree brown, bayo akomolafe, bonitta roy, cristiano siri, daniel thorson, donna haraway, james hillman, jean gebser, nora bateson, ria baeck, rob burbea, sam hinds, ursula le guin, xavier snelgrove,\
+adrienne maree brown, bayo akomolafe, bonnitta roy, christopher alexander, cristiano siri, daniel thorson, donella meadows, donna haraway, james hillman, jean gebser, nora bateson, peter limberg, ria baeck, rob burbea, sam hinds, ursula k le guin, xavier snelgrove,\
 \
 mycelium and longing,
