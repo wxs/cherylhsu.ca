@@ -8,9 +8,7 @@ date: 2022-04-20T16:02:18.098Z
 >
 > \-- Christopher Alexander
 
-
-
-
+&nbsp;
 
 > *"In creativity, origin is present."* \
 > \
