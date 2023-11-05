@@ -3,9 +3,12 @@
 # This script copies over files from the Obsidian vault into the appropriate directories of the hugo site,
 # then performs a git commit and push to the remote repository (which should trigger a rebuild if webhooks are set up)
 
+cd "$(dirname "$0")"
+
 # Hard-coded (sorry) on X's machine: ~/Documents/Obsidian/cherylhsu.ca. On Cheryl's machine ~/Documents/cherylhsu.ca.
 # Look for X's first, then Cheryl's to set the vault directory (I'm trying to make this as simple as double-clicking for
 # Cheryl which is why I'm hard-coding things)
+
 
 if [ -d ~/Documents/Obsidian/cherylhsu.ca ]; then
     vault_dir=~/Documents/Obsidian/cherylhsu.ca
@@ -20,7 +23,7 @@ fi
 # directory into content/post. The rsync command is set to delete files in the destination that are not in the source
 
 rsync -av --delete $vault_dir/pages/ content/pages/
-rsync -av --delete $vault_dir/posts/ content/post/
+rsync -av --delete $vault_dir/post/ content/post/
 rsync -av --delete $vault_dir/images/ static/images/
 
 # Now commit and push the changes to the remote repository
