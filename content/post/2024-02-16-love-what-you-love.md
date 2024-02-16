@@ -106,13 +106,13 @@ I have nothing to prove. I can only share with you what the soft animal of my bo
 
 Thich Nhat Hanh writes about interbeing, the Buddhists have long talked about co-dependent arising. First Nations people around the world live by indigenous cosmologies of sacred interconnection. Quantum scientists like David Bohm describe the interconnected Whole. The truth is simple: we are all connected. But what does it mean to actually feel this living sensation? 
 
-David B said in the session last week: there are energies in the earth that are too much for one body to hold. 
+David B said in the session last week: *there are energies in the earth that are too much for one body to hold.* 
 
 When he says this, I remember the morning I learned about the mass graves of over 750 Indigenous children that were buried in Canada. When I read an article about it, it was too much. I felt numb and disconnected. Before going into Collective Presencing that day, I could feel the pressure and tension heavy in my body. But upon arrival,  something in my body felt held by the “container”, this collective body made up of our attention and bodies. And when it felt held, “I” collapsed into tears and sobbing, touching into the indescribable pain and despair that I had forced down below, now rising, swelling and passing through my body like massive tidal waves. It was painful and difficult, and it was healing and releasing. I needed to connect with the grief and suffering of these children, to sense into the intergenerational pain of the adults who put them underground, to touch the cold cement of the unfeeling institutions, systems and cultures that alienate us from each other and the planet. 
 
 The weight of Collective Trauma is “too much for one body to hold.” Yet I wasn’t alone. I don’t cry often, I’ve spent my entire life trying to “hold it together”. But sometimes, you’re holding it together behind a tough exterior, and then you see the trusted, loving face of your partner or your mother, and something cracks through. Your animal body knows, and it gloriously falls apart. You allow yourself to be held in the safe arms of your beloved.  
 
-The landscape of my body is unique to me, lined and storied with my ancestral traumas and living experiences. And yet deeper currents run beneath… a hidden order entangling us at greater depths… 
+The landscape of my body is unique to me, lined and storied with my ancestral traumas and living experiences. And yet deeper currents run beneath… a hidden order entangling us at greater depths.
 
 The more I practice and stretch my body to hold these waves of intensity, the more the thick walls of separation begin to dissolve. Skin becomes translucent and porous. As I leak more into the world, the world trickles and spills into me, flowing through the rivers and tributaries of the body. The territory of Self becomes a dynamic meeting place of fluid circulation and reciprocity. Paradoxically, the more tender I become, the more resilient. I cry more. I laugh more. I trust more. I care more. I love more. And when I do so, I feel like I’m doing so through and for something larger than just “me”. 
 
