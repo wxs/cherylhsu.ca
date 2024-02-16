@@ -20,6 +20,7 @@ tags:
 **\[ Originally written on February 1, 2022 ]** 
 
 
+
 I pick up the piece.
 
 What moves me to write here? I arrive at this blank page with a blinking cursor, body still trembling from a Collective Presencing session.
@@ -70,9 +71,9 @@ And when you encounter your Beloved, you can’t help but “fall” in love. Th
 
 And the checklist is blown away by the wind. 
 
-  
-  
-  
+
+
+
   
 ## The Field
 
@@ -96,6 +97,8 @@ I have nothing to prove. I can only share with you what the soft animal of my bo
   
   
 
+
+
 ## The Body 
 
 
@@ -117,10 +120,11 @@ Again, I have nothing to prove here. I only want to share what the soft animal o
 
   
   
+  
+  
 
 ## The Mutation 
 
-  
 
 One more thing as a sobering note of forewarning: love changes you. 
 
@@ -159,5 +163,5 @@ And I’ll put the piece down.**
 
 
 
+
 ------ 
-I wrote this originally in February 2021... 
