@@ -5,7 +5,7 @@ tags:
   - collectivepresencing
   - mutation
 ---
-
+<br/>
 
   
 >*“You do not have to be good.*  
@@ -99,8 +99,10 @@ I have nothing to prove. I can only share with you what the soft animal of my bo
 <br/>
 <br/>
 <br/>
+
 ## The Body 
 
+<br/>
 
 Thich Nhat Hanh writes about interbeing, the Buddhists have long talked about co-dependent arising. First Nations people around the world live by indigenous cosmologies of sacred interconnection. Quantum scientists like David Bohm describe the interconnected Whole. The truth is simple: we are all connected. But what does it mean to actually feel this living sensation? 
 
@@ -126,6 +128,7 @@ I only want to share what the soft animal of my body feels. 
 
 ## The Mutation 
 
+<br/>
 
 One more thing as a sobering note of forewarning: **love changes you.** 
 
@@ -167,6 +170,7 @@ Perhaps you too, might dare to make contact with what your animal body loves. 
 *And I’ll put the piece down.*
 
 
-
+<br/>
+<br/>
 
 ------ 
