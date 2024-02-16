@@ -1,5 +1,5 @@
 ---
-title: Love what you love
+title: love what you love
 date: 2024-02-16
 tags:
   - collectivepresencing
@@ -19,7 +19,7 @@ tags:
 <br/>
 <br/>
 
-**\[ Originally written on February 1, 2022 ]** 
+**\[ Originally written in February 2022 ]** 
 
 <br/>
 
