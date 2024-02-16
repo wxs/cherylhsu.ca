@@ -3,6 +3,9 @@
 # This script copies over files from the Obsidian vault into the appropriate directories of the hugo site,
 # then performs a git commit and push to the remote repository (which should trigger a rebuild if webhooks are set up)
 
+
+set -e
+
 cd "$(dirname "$0")"
 
 # Hard-coded (sorry) on X's machine: ~/Documents/Obsidian/cherylhsu.ca. On Cheryl's machine ~/Documents/cherylhsu.ca.
