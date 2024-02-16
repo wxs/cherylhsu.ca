@@ -2,7 +2,8 @@
 title: Love what you love
 date: 2024-02-16
 tags:
-  - phd
+  - collectivepresencing
+  - mutation
 ---
 
 
@@ -21,7 +22,7 @@ tags:
 
 
 
-I pick up the piece.
+*I pick up the piece.*
 
 What moves me to write here? I arrive at this blank page with a blinking cursor, body still trembling from a Collective Presencing session.
 
@@ -71,10 +72,11 @@ And when you encounter your Beloved, you can’t help but “fall” in love. Th
 
 And the checklist is blown away by the wind. 
 
+<br/>
+<br/>
+<br/>
 
 
-
-  
 ## The Field
 
   
@@ -94,11 +96,9 @@ Often, this is when I am moved to pick up the piece. And  I let the centre radi
 
 I have nothing to prove. I can only share with you what the soft animal of my body knows.
 
-  
-  
-
-
-
+<br/>
+<br/>
+<br/>
 ## The Body 
 
 
@@ -116,17 +116,18 @@ The more I practice and stretch my body to hold these waves of intensity, the mo
 
 After 15 months of this dedicated practice, I know I am not alone in the field. We always co-host together, hold each other as a collective body of practitioners. We tune into Eric with his dancing light, into Nick for creative daring, Tanya and her senseful embodiment, David for warm steadiness, Ria with firm and loving wisdom, Brandon for wild imagination, Kim for fiery passion, Helen with fierce discernment, Justin as innocent sage…  and there are countless others unnamed, each with their unique frequencies and beautiful soul gifts that are generously, openly shared with the field. Our souls swirl together into the centre like a colourful kaleidoscope, creating this mandala spiralling towards a collective capacity and strength beyond our current imagination. 
 
-Again, I have nothing to prove here. I only want to share what the soft animal of my body feels. 
+Again, I have nothing to prove here. 
 
-  
-  
-  
-  
+I only want to share what the soft animal of my body feels. 
+
+<br/>
+<br/>
+<br/>
 
 ## The Mutation 
 
 
-One more thing as a sobering note of forewarning: love changes you. 
+One more thing as a sobering note of forewarning: **love changes you.** 
 
 If you are clinging or attached to some older version of yourself, to the safety and security of a known role, shape, or identity, this might not (yet) be the practice for you. But if you feel called to become, to allow yourself to be contaminated, to change, to mutate into something that you may not know or understand and are afraid of, but you nonetheless feel this deep, unfathomable longing towards. I ask you to be brave, and consider coming to the edge. 
 
@@ -138,28 +139,32 @@ And just like that, lightning strikes and everything holding my body together sh
 
 In the aftermath of these experiences that can only be described as numinous, I feel at peace and full of wonder, like I’ve been touched by grace. It is not unlike the experience of architect Christopher Alexander after he climbs up the stairs of the Buddhist temple and is visited by a dragonfly. 
 
-> As I sat there, a blue dragonfly came and landed on the step beside me. It stayed. And as it stayed I was filled with the most extraordinary sensation. I was suddenly certain that the people who had built that place had done all this deliberately. I felt certain -- no matter how peculiar or unlikely it sounds today, as I am telling it again -- that they had made that place, knowing that the blue dragonfly would come and sit by me. However it sounds now, at the time when it happened, while I sat down on that stair, there was no doubt in my mind at all that there was a level of skill in the people who had made this place that I had never experienced before. I remember shivering as I became aware of my own ignorance. I felt the existence of a level of skill and knowledge beyond anything I had ever come across before.”
+> *As I sat there, a blue dragonfly came and landed on the step beside me. It stayed. And as it stayed I was filled with the most extraordinary sensation. I was suddenly certain that the people who had built that place had done all this deliberately. I felt certain -- no matter how peculiar or unlikely it sounds today, as I am telling it again -- that they had made that place, knowing that the blue dragonfly would come and sit by me. However it sounds now, at the time when it happened, while I sat down on that stair, there was no doubt in my mind at all that there was a level of skill in the people who had made this place that I had never experienced before. I remember shivering as I became aware of my own ignorance. I felt the existence of a level of skill and knowledge beyond anything I had ever come across before.”*
 
   
 How did this come to happen? What are the conditions, the design patterns, the architectural affordances of Collective Presencing that come together to form this timeless moment, as though it was by deliberate design?  
 
 What Collective Presencing invites are these moments of meeting your dragonfly, of making contact with the beloved.  I’m always surprised in every session. These aren’t just ideas, they are living and embodied. My animal body yearns to connect more, to make more contact, to create more life. I don’t know what will happen. I tremble. My heart beats. I speak, and what comes through is more mysterious, more whole, than I can imagine.  
 
-I want to participate with the mystery that moves my trembling body.
+*I want to participate with the mystery that moves my trembling body.*
 
-I hope that you do not read this as the love-sick ramblings of a person drunk on the early infatuations of love. Because what is here is very sober, very steady, very fierce. \
+I hope that you do not read this as the love-sick ramblings of a person drunk on the early infatuations of love. Because what is here is very sober, very steady, very fierce. 
 
 You see, describing Collective Presencing is challenging, like describing love. I can’t pick it up and show it to you, break it down into atoms and point it out under a microscope. I tell you that it matters deeply. You’ll know it when you feel it. At least, that’s what the poets and song-writers tell you anyway. Don’t look for it, because it will find you. And suddenly,  you’ll feel it through the interdimensional passage of time and memory --  the remembrance of a mother’s kiss on your forehead,  fluttering like the shimmering wings of a dragonfly. 
 
-Or maybe I can try to pick up the piece from the centre, and hold it preciously in front of you: for some people, it’s a rock, a seashell, a feather that they lift up to the screen. Often, it’s just the solemn words spoken “I pick up the piece”, the shape of each word held like precious pebbles in your mouth. Mine is a gossamer thread that I feed into the centre: the simple truth of what is present, offered from the entangled complexity of my being. I don’t know where it might take me, but I trust it, because that thread is a strange attractor of my soul.
+Or maybe I can try to pick up the piece from the centre, and hold it preciously in front of you: for some people, it’s a rock, a seashell, a feather that they lift up to the screen. Often, it’s just the solemn words spoken *“I pick up the piece”*, the shape of each word held like precious pebbles in your mouth. Mine is a gossamer thread that I feed into the centre: the simple truth of what is present, offered from the entangled complexity of my being. I don’t know where it might take me, but I trust it, because that thread is a strange attractor of my soul.
 
-One more time. I have nothing to prove. I am only letting the soft animal of my body love what it loves.
+One more time. 
+
+I have nothing to prove. 
+
+I am only letting the soft animal of my body love what it loves.
 
 So I’ll feed the thread back in the centre, and as you feel the interweaving waves of potential, perhaps you too, might feel moved to pick it up. 
 
 Perhaps you too, might dare to make contact with what your animal body loves. 
 
-And I’ll put the piece down.**
+*And I’ll put the piece down.***
 
 
 
