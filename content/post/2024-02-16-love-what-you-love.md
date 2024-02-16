@@ -164,7 +164,7 @@ So I’ll feed the thread back in the centre, and as you feel the interweaving w
 
 Perhaps you too, might dare to make contact with what your animal body loves. 
 
-*And I’ll put the piece down.***
+*And I’ll put the piece down.*
 
 
 
