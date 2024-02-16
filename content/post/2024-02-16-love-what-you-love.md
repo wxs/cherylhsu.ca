@@ -16,11 +16,12 @@ tags:
 
 > --- Mary Oliver, “Wild Geese”: 
 
--- 
+<br/>
+<br/>
 
 **\[ Originally written on February 1, 2022 ]** 
 
-
+<br/>
 
 *I pick up the piece.*
 
