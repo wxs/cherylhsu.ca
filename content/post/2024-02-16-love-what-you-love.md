@@ -67,7 +67,7 @@ I’ve relaxed that part of me that can’t tear her eyes away from the maps lik
 
 It’s funny -- you try to look for the perfect partner, lover, job with a list of check-list attributes that you want to see: “they must be this tall and this pretty and this smart”. 
 
-And when you encounter your Beloved, you can’t help but “fall” in love. The earth pulls you down to your knees. Your animal body recognizes what it loves. 
+And when you encounter your Beloved, you can’t help but “fall” in love. The earth pulls you down to your knees. *Your animal body recognizes what it loves.* 
 
 “Reality” is so much more magical than anything you can imagine or make sense of. You are awed by the mystery of love. 
 
@@ -83,7 +83,7 @@ And the checklist is blown away by the wind. 
   
 What is this field that we discover and create as we hold space of Collective Presencing through the vibrational frequencies of a video call? Let’s zoom in to this strange digital room that we all pop into… and zoom out to this global technology platform that skyrocketed in value when the pandemic locked the soft animal of our bodies behind the physical walls of our homes. 
 
-In the apocalypse (but let us remember that *apokálypsis* means “disclosure or revelation”), our apartments and homes became prisons and cocoons.  We were afraid that the coronavirus might contaminate our bodies. Little did we know that we were already being contaminated by something else… an unfathomably deep longing for connection, for contact, for intimacy, for a world that might be different. And a longing and a calling that begins a subtle mutation that is electrifying.
+In the apocalypse (but let us remember that *apokálypsis* means “disclosure or revelation”), our apartments and homes became prisons and cocoons.  We were afraid that the coronavirus might contaminate our bodies. Little did we know that we were already being contaminated by something else… an unfathomably deep longing for connection, for contact, for intimacy, for a world that might be different. A longing and a calling that begins a subtle mutation that is electrifying.
 
 So people living all over the planet, across generations, space, time and geography, stumble across the dark forest of the internet and meet to connect. We show up with our faces in a grid of small boxes, filling the larger box of our computer screen. We check in with our unique voices and particularities, and place the piece in the centre. And just like that, our bodies sink into something deeper, a wider resonance field of energetic frequencies. We spill out of our boxes into a teaming ocean of love. 
 
