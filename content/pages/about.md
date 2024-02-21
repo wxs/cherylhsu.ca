@@ -3,12 +3,7 @@ title: about
 description: about
 date: 2020-11-06
 ---
-{{< figure src="/images/unnamed-3.jpg" width="300px" class="float-right" >}}
 
-## **This is a container for the cultivation of a [“soul’s calling”](https://cherylhsu.ca/post/2020-11-06-commitment-to-calling/).** 
-
-
-### Who is Cheryl? 
 
 Cheryl is **transversal designer,** braiding living root bridges of wholeness and intimacy in the time between worlds. (see: [Imaginal Transitions](https://weallcanada.org/wp-content/uploads/2022/10/Toronto-Imaginal-Transitions-v1.0.pdf), [Thinking Transversally](https://youtu.be/fnpDP71uI9A?si=Ss8aVuVKzouH3afU))
 
