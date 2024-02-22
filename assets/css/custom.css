@@ -1,0 +1,12 @@
+.theme--dark .body, .theme--dark .post, .theme--dark .header, .theme--dark .nav__list {
+	/*background-color: #100808;*/
+}
+
+.sidebar__introduction-title {
+	text-transform: none;
+}
+
+* {
+font-family: monospace;
+
+}

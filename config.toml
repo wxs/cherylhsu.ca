@@ -12,7 +12,9 @@ title = "Cheryl Hsu"
 author = "Cheryl Hsu"
 description = "is (w)hole-making"
 profilePicture = "images/blackhole.png"
-  mainSections = ["post"]
+mainSections = ["post"]
+customCss = ["css/custom.css"]
+customJs = ["js/custom.js"]
 
 [[params.socialIcons]]
 icon = "fad-custom fad-twitter"
