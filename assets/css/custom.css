@@ -29,11 +29,11 @@ font-family: monospace;
 
 }
 
+
+@media screen and (min-width: 961px) {
 .post, .archive {
 margin: 30px 80px;
 }
-
-@media screen and (min-width: 961px) {
 .nav__list {
     padding: 24px 80px;
 }
