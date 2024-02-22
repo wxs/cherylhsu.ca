@@ -10,8 +10,8 @@ enableEmoji = true
 [params]
 title = "Cheryl Hsu"
 author = "Cheryl Hsu"
-description = "Designing With Dragons"
-profilePicture = "images/shob.jpg"
+description = "is (w)hole-making"
+profilePicture = "images/blackhole.png"
   mainSections = ["post"]
 
 [[params.socialIcons]]
