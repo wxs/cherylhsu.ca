@@ -9,7 +9,7 @@ Cheryl is **transversal designer,** braiding living root bridges of wholeness an
 
 Cheryl is a **soul-maker** of the Imaginal, transmuting desire (*eros*) into art. (see: [Alchemical Soul-making](https://youtu.be/lcK-fu6BtZ0?si=LwRs9nWOs_rYadRy)) 
 
-Cheryl is a **space-holder** and **gap-diver** for intersubjective creativity from Source. (see: [Sourcekeeping](https://www.youtube.com/watch?v=YBvcETG4W_k&t=1539s&pp=ygURc291cmNlIGNoZXJ5bCBoc3U%3D), [Collective Presencing](https://cherylhsu.ca/tags/collectivepresencing/))
+Cheryl is a **space-holder** and **gap-diver** for intersubjective creativity from Source. (see: [Sourcekeeping](https://www.youtube.com/watch?v=YBvcETG4W_k), [Collective Presencing](https://cherylhsu.ca/tags/collectivepresencing/))
 
 Cheryl is a **spiritual activist**, devoted to the democratization of mystical participation and the renewal of the sacred. (see: [Church of the Intimate Web](https://publish.obsidian.md/intimateweb/The+Logos+Garden))
 
