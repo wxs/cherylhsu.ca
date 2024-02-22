@@ -28,3 +28,20 @@ margin-bottom: 3em;
 font-family: monospace;
 
 }
+
+.post {
+margin: 30px 80px;
+}
+
+@media screen and (min-width: 961px) {
+.nav__list {
+    padding: 24px 80px;
+}
+.wrapper__sidebar {
+	width: calc(0.35 * 100%);
+}
+.sidebar, .theme--dark .sidebar {
+	border-right: none;
+
+}
+}
