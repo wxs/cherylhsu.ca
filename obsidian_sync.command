@@ -22,6 +22,9 @@ else
     exit 1
 fi
 
+# Get the latest git repo
+git pull
+
 # Now rsync the vault's pages directory into content/pages, the images directory into static/images and the post
 # directory into content/post. The rsync command is set to delete files in the destination that are not in the source
 
@@ -31,7 +34,7 @@ rsync -av --delete $vault_dir/images/ static/images/
 
 # Now commit and push the changes to the remote repository
 
-git add content static
+git add .
 git commit -m "Syncing Obsidian vault"
 git push
 
