@@ -1,3 +1,21 @@
+body {
+font-size: 1.4rem;
+
+}
+p {
+margin-bottom: 1.4rem;
+}
+
+.post__content img {
+margin-top: 3em;
+margin-bottom: 3em;
+}
+
+blockquote {
+margin-top: 3em;
+margin-bottom: 3em;
+}
+
 .theme--dark .body, .theme--dark .post, .theme--dark .header, .theme--dark .nav__list {
 	/*background-color: #100808;*/
 }
