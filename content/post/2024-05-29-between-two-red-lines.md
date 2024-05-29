@@ -8,15 +8,17 @@ tags:
 ---
 <br/>
 
+>“The valley spirit never dies;
+>It is the woman, primal mother.
+>Her gateway is the root of heaven and earth.
+>It is like a veil barely seen.
+>Use it; it will never fail.” 
+>-- Tao Te Ching
+
+
 ***Note to the reader:** it is worthwhile to inform you that what follows includes content relating to suicide, pregnancy, spirituality and death. If these themes feel distressing to you in any way, do what is right to be gentle and kind with your body and psyche. Sharing and writing about this is an act of bravery for the writer as well, to share with vulnerability the whole reality of her phenomenal experience.*
   
->“The valley spirit never dies;
-It is the woman, primal mother.
-Her gateway is the root of heaven and earth.
-It is like a veil barely seen.
-Use it; it will never fail.” 
 
--- Tao Te Ching
 
 <br/>
 <br/>
