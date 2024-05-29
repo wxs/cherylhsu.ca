@@ -1,6 +1,6 @@
 ---
 title: between two red lines
-date: 2024-02-16
+date: 2024-05-29
 tags:
   - phd
   - embodiment
@@ -47,15 +47,12 @@ From November 2019 to March 2020, I experienced deep intensity of pain and loss 
 
 Yet the soul still nurses its latent desires, hidden away in a chest buried deep. When the pandemic stirred life back into the body: I began to have imaginal visions that I had never encountered before during my meditations. 
 
-	I would feel myself standing in a dark room with an empty crib and an empty heart. 
-	
-	I would feel my hand gently holding a chubby little hand, brushing through tall grass. 
-	
-	I would see myself standing at a misty lake, thigh deep in a cold lake, deciding to drown myself after losing my child.
-	
-	I would see my wrinkly hands making homemade tofu at the sink for my grandchildren. 
-	
-	I would feel myself on an operating table, feeling life force drain from my body yet relieved to hear a crying baby lifted out of me.
+>I would feel myself standing in a dark room with an empty crib and an empty heart. 
+I would feel my hand gently holding a chubby little hand, brushing through tall grass. 
+I would see myself standing at a misty lake, thigh deep in a cold lake, deciding to drown myself after losing my child.
+I would see my wrinkly hands making homemade tofu at the sink for my grandchildren. 
+I would feel myself on an operating table, feeling life force drain from my body yet relieved to hear a crying baby lifted out of me.
+
 
 These Imaginal visions would haunt me viscerally -- leaving me trembling in wake of both pain and desire coursing through the dark well of my body. I can only write them now for years of dedicated metabolism of these soul images. 
 
@@ -96,9 +93,9 @@ Why do I share all this? Because on the night of May 9th, when I saw the two red
 
 There are aspects of this that feel difficult for me -- true sacrifice is still on the table. For the last four years, my core tension is between the realm of spirit: the heavenly path of renunciation and devotion, and the realm of desire: the mundane path of family life. A part of me wants to leave the world and become a Taoist renunciate, seeking heavenly knowledge and harmony among the trees. But my path is also one of alchemy — to braid the mundane with the divine into a living root bridge of sacred remembering. I put my feet in the pond, and it gives me instruction through the divine tongues of Life. 
 
-	*Pregnancy tells us “things we need to know about the way awakening works — the slow, unfolding, sometimes hidden, always expanding nature of it, the inevitable queasiness, the need to nurture and attend to what inhabits us, the uncertainty about the outcome, the fearful knowing that once we bring the new consciousness forth, our lives will never be the same.”* 
-	
-	-- From "Birthing the Tao" by Randine Lewis
+>*Pregnancy tells us “things we need to know about the way awakening works — the slow, unfolding, sometimes hidden, always expanding nature of it, the inevitable queasiness, the need to nurture and attend to what inhabits us, the uncertainty about the outcome, the fearful knowing that once we bring the new consciousness forth, our lives will never be the same.”* 
+>
+> -- From "Birthing the Tao" by Randine Lewis
 
   
 I’ve been telling my friends and family about becoming pregnant, both place-based and in the liminal network. My parents, my friends, my teachers and collaborators. I told my friends in the Church of the Intimate Web, my kin in Collective Presencing. Some may find it brave, risky or uncomfortable for me to announce something like this so early. Something very pragmatic in me scoffs in response: “Of course I want to share -- I do not want to hold this alone!” 
@@ -111,12 +108,17 @@ Last week, I got in touch with Adriana Forte, feeling attraction to the embodied
 
 In her first voice message to me, sent from Australia to Canada, she says: 
 
-	“When you said that you are allowing yourself to be happy and excited, but without being attached. I know what you mean. But I suppose what I want to offer is that maybe this is a construct of Modernity. Maybe this journey, as it unfolds, will possibly reveal something that is not meant for us to know. Because in my experience, it’s almost not possible to fully be in something with everything you’ve got and not be attached. But then surprisingly, what I found in my life is that when something happens --  be it a miscarriage, there are so many other things that unfold in a woman’s journey of becoming a mother, having children and raising them. But whenever something happens, there is this crazy power that arises. There is something natural that happens from the present moment. Where it comes from I don’t know where, like the rooted self. And then it gives strength.” 
+
+>“When you said that you are allowing yourself to be happy and excited, but without being attached. I know what you mean. But I suppose what I want to offer is that maybe this is a construct of Modernity. Maybe this journey, as it unfolds, will possibly reveal something that is not meant for us to know. Because in my experience, it’s almost not possible to fully be in something with everything you’ve got and not be attached. But then surprisingly, what I found in my life is that when something happens --  be it a miscarriage, there are so many other things that unfold in a woman’s journey of becoming a mother, having children and raising them. But whenever something happens, there is this crazy power that arises. There is something natural that happens from the present moment. Where it comes from I don’t know where, like the rooted self. And then it gives strength.” 
+
+
+
+
 
 
 Adriana then shares the story of a woman in her community, who recently lost her only daughter --  fifteen years old --  and ex-husband to a car accident. My unbearable soul image.
 
-	“We went to this funeral on Friday. It was beautiful, it was a grieving ritual for everything. People were pouring everything in there without speaking. The next day, I vomited because it was so strong. They had an effigy and people could put prayers in it beside the river. And the woman carried her daughter’s coffin, and you could feel her heart, so cracked open. You could feel the tremendous pain, and her words were so compassionate towards everyone. It was this paradox of: *I have never been this broken, and never as open.”*  
+>“We went to this funeral on Friday. It was beautiful, it was a grieving ritual for everything. People were pouring everything in there without speaking. The next day, I vomited because it was so strong. They had an effigy and people could put prayers in it beside the river. And the woman carried her daughter’s coffin, and you could feel her heart, so cracked open. You could feel the tremendous pain, and her words were so compassionate towards everyone. It was this paradox of: *I have never been this broken, and never as open.”*  
 
 I don’t want to hide from this or hold it alone. The raw power of Life is our birthright. I embrace this rite of passage as a call to be intimate with all of Reality. Everything seen perfectly is loved. 
 
@@ -124,8 +126,9 @@ I don’t want to hide from this or hold it alone. The raw power of Life is our 
 
 Adriana continues: 
 
-	“One of my teachers would say: Every pregnancy results in birth, and every pregnancy is a rite of passage, no matter what happens to the baby.” 
+>“One of my teachers would say: Every pregnancy results in birth, and every pregnancy is a rite of passage, no matter what happens to the baby.” 
 
+	
 As I write and share my experience, I embrace *Amor Fati,* the love of one’s fate. I commit to the pregnant body as the earth’s body, as the communal body, all intimately enmeshed together as the apprenticeship of the soul’s re-birth -- accepting all of its wholeness, no matter what happens. 
 
 And I know, deep in the ancestral marrow of my bones, that parenting the futures we long for is collective and ecological. We learn together. Parenting is intersubjective,  primordial to the deepest roots --  that which we are called to remember and evolve, ever more deeply, ever more intimately. So I share all of my joy and grief, fear and excitement, concern and nausea — the glorious messiness of parenting potential — all of it into the sacred commons. 
