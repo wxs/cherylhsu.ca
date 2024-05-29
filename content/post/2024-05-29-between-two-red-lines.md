@@ -33,7 +33,7 @@ tags:
 
 Earlier in the same week, our friend took his own life. It was devastating. Birth and death, grief and joy, seem to arrive intimately together like that. Twin sisters holding hands --  baby soft, tender, wrinkled --  through the Spirit Valley. The portal gathers a powerful gravitational field that both attracts and repulses bodies in space. People hover around the edges, gauging distance and contact. Those with the resilience of lived experience can withstand more intensity. Their skin toughened with the wisdom of stretch marks and scar tissue; they come closer to the centre. 
 
-I want to write about this -- it is my devotion to *yin research*, the intersubjective ethnography of “life-lifing” in this time between worlds. But I have to work through residues of fear around exposing personal experiences of pregnancy, about relating with birth and death, about being so physically confronted with the vertiginous abyss of not knowing and making a leap of faith, again and again. It feels private, tender, and dangerous. Yet it is my commitment to faithfully encounter all aspects of Life as soul-directed research -- using every perceptual skill and capacity trained into my being to “see perfectly.” Bonnie Roy reminds me: **“everything seen perfectly is loved.”** 
+I want to write about this -- it is my devotion to *yin research*, the intersubjective ethnography of “life-lifing” in this time between worlds. But I have to work through residues of fear around exposing personal experiences of pregnancy, about relating with birth and death, about being so physically confronted with the vertiginous abyss of not knowing and making a leap of faith, again and again. It feels private, tender, and dangerous. Yet it is my commitment to faithfully encounter all aspects of Life as *soul-directed research* -- using every perceptual skill and capacity trained into my being to “see perfectly.” Bonnie Roy reminds me: **“everything seen perfectly is loved.”** 
 
 So I am enrolled into the practicum of deep phenomenology. My body is now activated to become a biome in the continuity of one of most complex and primordial experiments: *the cultivation of another human life in the belly.*  
 
@@ -45,7 +45,7 @@ The most humbling inquiry in this soul-directed curriculum confronts me with a c
 
 X always wanted to have children. I spent most of my life feeling ambivalent about it. 
 
-From November 2019 to March 2020, I experienced deep intensity of pain and loss of ground (a “dark night”) in a kind of dissociative acceptance of the imminent collapse and suffering in the world. I swallowed the pill of tragedy into my body and it did its work. The ambivalence I felt around children collapsed into chilling clarity: “No, I will not bring a child into the world.” 
+From November 2019 to March 2020, I experienced deep intensity of pain and loss of ground (a “dark night”) in a kind of dissociative acceptance of the imminent collapse and suffering in the world. I swallowed the pill of tragedy into my body and it did its work. The ambivalence I felt around children collapsed into chilling clarity: **“No, I will not bring a child into the world.”** 
 
 Yet the soul still nurses its latent desires, hidden away in a chest buried deep. When the pandemic stirred life back into the body: I began to have imaginal visions that I had never encountered before during my meditations. 
 
