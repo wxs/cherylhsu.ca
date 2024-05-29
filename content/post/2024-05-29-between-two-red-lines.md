@@ -81,7 +81,7 @@ This truth connects me to a long and deep human lineage: *To give birth into a r
 
 Falling in love means inevitable heartbreak from beginning to end. Am I capable of meeting this, intimately? 
 
-Of all the Soul images that I shared, the most liberating image is also the most gruesome: I am on an operating table, bloodied and giving birth, knowing that I am going to die and accepting reality. I hear the baby crying. It is worthwhile. I relax, returning home.  Somehow, this soul image of my own death liberates me into becoming available to the possibility of creating new life. 
+Of all the Soul images that I shared, the most liberating image is also the most gruesome: I am on an operating table, bloodied and giving birth, knowing that I am going to die and accepting reality. I hear the baby crying. *It is worthwhile. I relax, returning home.*  Somehow, this soul image of my own death liberates me into becoming available to the possibility of creating new life. 
 
 I know in my Imaginal body: **this love is worth dying for.** 
 
