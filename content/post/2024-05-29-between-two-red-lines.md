@@ -74,7 +74,7 @@ Another relevant artwork was *“The Story of Your Life”* by Ted Chiang (and t
 
 
 I wondered if this was possible for me: ***to surrender to and choose Love, even when I am due for inevitable pain, heartbreak and struggle.**** 
-*
+
 You see, you don’t need prophecy or clairvoyance to know this inevitability to be true.
 
 This truth connects me to a long and deep human lineage: *To give birth into a reality of heartbreak*. This is the conscious sacrifice of creating and being bound to Life. To become a parent is to remember this soul contract.  It cracks you open to the task of unconditional loving in the vast valley between Self-and-Other -- to birth a being from the intimate membrane immanent to and beyond everything. This principle extends beyond human baby-making -- any true Creative Act generates more aliveness, it metabolises entropy. You bring it into the world and know viscerally the true depths of *response-ability.* Any latent potential that you fall in love with, nurture, protect and guide into actualization is an ensouled being -- whether it is a relationship with an art project, an organisation, the plane. You cannot control it, and yet you are helplessly bound, inextricably entangled in your loving. 
