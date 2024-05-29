@@ -1,9 +1,10 @@
 ---
-title: love what you love
+title: between two red lines
 date: 2024-02-16
 tags:
-  - collectivepresencing
-  - mutation
+  - phd
+  - embodiment
+  - soul
 ---
 <br/>
 
@@ -14,6 +15,7 @@ It is the woman, primal mother.
 Her gateway is the root of heaven and earth.
 It is like a veil barely seen.
 Use it; it will never fail.” 
+
 -- Tao Te Ching
 
 <br/>
