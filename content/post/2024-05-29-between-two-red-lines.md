@@ -135,7 +135,7 @@ As I write and share my experience, I embrace *Amor Fati,* the love of one’s f
 
 And I know, deep in the ancestral marrow of my bones, that parenting the futures we long for is collective and ecological. We learn together. Parenting is intersubjective,  primordial to the deepest roots --  that which we are called to remember and evolve, ever more deeply, ever more intimately. So I share all of my joy and grief, fear and excitement, concern and nausea — the glorious messiness of parenting potential — all of it into the sacred commons. 
 
-All this is offered, into the space between two red lines. 
+All this is offered, into the space *between two red lines.* 
 
   
 
