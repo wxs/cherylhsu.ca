@@ -96,7 +96,7 @@ All this I write with a baby growing in my belly. This new life transforms and m
 Cheryl
 
 
-![[/images/sky-meadow-images.jpg]]
+![](/images/sky-meadow-images.jpg)
 *(two photos from June 2024, Skymeadow, Vermont -- the "sacred ritual" of blessing and washing the feet, through myriad beings living together on this finite planet)*
 
 **
