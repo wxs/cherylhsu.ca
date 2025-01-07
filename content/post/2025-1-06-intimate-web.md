@@ -2,8 +2,9 @@
 title: love letter to the intimate web
 date: 2025-01-06
 tags:
-  - phd
-  - embodiment
+  - collectivesoulmaking
+  - ritual
+  - intimacy
   - soul
 ---
 <br/>
