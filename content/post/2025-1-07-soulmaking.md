@@ -1,6 +1,6 @@
 ---
 title: Soulmaking in this Time Between Worlds
-date: 2025-01-06
+date: 2025-01-07
 tags:
   - collectivesoulmaking
   - ritual
