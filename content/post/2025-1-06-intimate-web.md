@@ -5,7 +5,7 @@ tags:
   - collectivesoulmaking
   - ritual
   - intimacy
-  - soul
+  - church
 ---
 <br/>
 
