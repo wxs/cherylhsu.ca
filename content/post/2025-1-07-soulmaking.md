@@ -56,9 +56,13 @@ From Cheryl, one of your co-conspirators for this gathering
 
 **References:** 
 (1) The term “Time Between Worlds” comes from Zak Stein, who invokes it to specifically gesture to this historical-epochal period of vast transformation --  a period where kairos and chronos collide with great potential and collapse.
+<br/>
 (2)  As River Kenna wrote in a [tweet thread](https://x.com/the_wilderless/status/1488215609443852291) about the archetypal pattern of the “Shaman”: *“Every archetype is filtered through the medium of whatever culture, person, and time are expressing it, and those expressions often get sticky with residue from previous people, cultures, times.”*
+<br/>
 (3)  Rosa Lewis is pulling together a collaborative project called the "[Imaginal Realm Project](https://imaginaljourneying.com/)", connecting these Imaginal adepts and practitioners who can: “can unleash creativity, strengthen connections, deepen emotional resonance, heal trauma, uncover true purpose and unlock new paradigms”. 
+<br/>
 (4) The “Gods we belong to” is a term I attribute to River Kenna. His writing on [Valueception](https://innerwilds.blog/p/what-is-valueception) (as well as his practice teachings on somatic-resonance and mytho-poetic cognition) is a guide to how to perceive and align with your values and deepest soul’s calling. 
+<br/>
 (5) From Tucker’s soul work on activating, creating and connecting a network of “[Lighthouses](https://tuckerwalsh.medium.com/lighthouse-an-illumination-1fefa3449bce)” -- “houses of devotion where we celebrate the miracle of Life, commune with community and co-create with Creator”. 
 
 
