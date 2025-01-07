@@ -15,7 +15,7 @@ tags:
 
 ***So what is Collective Soul-making?** This question guides an action-research project of embodying and reflecting upon a vital phase in the metamorphic process underway in  [Collective (W)hole-making](https://www.youtube.com/playlist?list=PLoZ5e3aD_LuRopFSIQPxnkbOH_5RmcMXl) (from Hole to Soul to Whole). It is an esoteric and mysterious art form, one that seems to elude simple guidance or description (even though some "Oracular Guides" -- living and dead --  referenced in the letter below, have transmitted poetic "maps and patterns" to support others through this individual-collective labyrinthian journey). Even though it humbles me, it felt important to gather some of the emerging threads and patterns that constellate a "soulmaker of this time". This is why I wrote this "letter" as an offering and invitation into the middle, shared with others who made their own unique contributions to the question: "What is Soulmaking?"*
 
-**The letter below was written in August 2024 for the Soulmakers gathering (Sept 17-21, 2024; Bergerac, France)** 
+***The letter below was written in August 2024 for the Soulmakers gathering (Sept 17-21, 2024; Bergerac, France)*** 
 
 <br/>
 <br/>
