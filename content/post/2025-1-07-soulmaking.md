@@ -51,10 +51,13 @@ I have faith that there is a *fractal pattern language* for Collective Soulmakin
 
 From Cheryl, one of your co-conspirators for this gathering
 
+**
+
 <br/>
 <br/>
 
 **References:** 
+<br/>
 (1) The term “Time Between Worlds” comes from Zak Stein, who invokes it to specifically gesture to this historical-epochal period of vast transformation --  a period where kairos and chronos collide with great potential and collapse.
 <br/>
 (2)  As River Kenna wrote in a [tweet thread](https://x.com/the_wilderless/status/1488215609443852291) about the archetypal pattern of the “Shaman”: *“Every archetype is filtered through the medium of whatever culture, person, and time are expressing it, and those expressions often get sticky with residue from previous people, cultures, times.”*
