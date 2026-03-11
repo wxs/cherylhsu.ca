@@ -1,6 +1,13 @@
 ---
 title: Harmonizing the Body Electric
 date: 2021-10-23T16:34:53.618Z
+summary: |-
+  At Willow Monastic Academy, I lead chanting every day. My voice begins to break, cracking from the effort. 
+
+  The head monk, Virabahdra, draws me aside in the afternoon to give me feedback. He tells me: “ I want to hear your voice and energy more. Remember -- chant like you’re about to have an existential crisis.”
+tags:
+  - imaginal
+  - masters
 ---
 ![]()
 
