@@ -7,6 +7,7 @@ tags:
   - intimacy
   - church
   - phd
+summary: Much of my ritual writing and research art-making in the last two years has been sourced and unfolding in the esoteric realms of intimate relating -- soul correspondence and ethnography that take the form of "love letters" and ritual-art projects/gatherings.
 ---
 <br/>
 
