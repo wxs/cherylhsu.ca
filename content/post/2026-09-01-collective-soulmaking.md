@@ -1,6 +1,6 @@
 ---
 title: How much is enough?
-date: 2025-03-10
+date: 2026-09-01
 tags:
   - phd
   - guild
