@@ -1,5 +1,5 @@
 ---
-title: "Collective Soulmaking: The Art of Intersubjective Cosmopoeisis"
+title: The Art of Intersubjective Cosmopoeisis
 date: 2026-09-01
 tags:
   - phd
