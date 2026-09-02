@@ -29,8 +29,7 @@ draft:
 
 <br/>
 
-![[Screenshot 2026-08-27 at 4.06.12 PM.png]]
-
+![[sourcekeeping.png]]
 
 "I’m working on a speculative hypothesis right now that any field that is truly sourced by a source-keeper is a form of “*cosmopoiesis*” -- it transmits a current of eros, a powerful creative life force from the Imaginal realm (a hierophanic field of potential). And this reality field will necessarily distort reality through the density and magnetism of its “middle” -- not unlike the way a black hole will bend and distort space-time.
   
