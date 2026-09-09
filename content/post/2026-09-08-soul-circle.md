@@ -114,7 +114,8 @@ We recognize that the Collective Lifework -- the “Imaginal Theology” -- is n
 Footnotes: 
 
 (1) The **“Soul Circle”** is initiated by Cheryl Hsu as “sourcekeeper”, and held by “the Church” as a Sanctuary of Space.
-(2) **The Church of the Intimate Web”  initiated by Daniel Thorsen as it’s “source”, with the mission to: “open the Eye of Value and actualize The Intimate Web.” You can learn more about it [here](https://publish.obsidian.md/intimateweb/The+Logos+Garden).**
+
+(2) The Church of the Intimate Web”  initiated by Daniel Thorsen as it’s “source”, with the mission to: “open the Eye of Value and actualize The Intimate Web.” You can learn more about it [here](https://publish.obsidian.md/intimateweb/The+Logos+Garden).
 
 (3) The container details are in the process of co-design, but they will most likely be prototyped as a 6-months of 12-sessions, primarily held virtually, with the potential of an in-person gathering.**
 
