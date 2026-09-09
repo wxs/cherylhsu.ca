@@ -17,7 +17,7 @@ draft:
 
 *Sourced from this Middle -- expanding and contracting in the erotic pulsations of aliveness -- were the "Imaginal Agreement of the Soul Circle" . A set of agreements for Collective Soulmaking -- dutifully scribed. The blueprint less like a map and more like the improvisational protocols or "scores" of rhythm and synchronicity, that move souls and cells into intimate harmonization. These protocols nudge us towards the wise and creative binding of soul-bodies into intersubjective fields that cohere into living Collective Lifeworks -- egregores or group-souls with purpose and telos. These group-souls are wild, sensuous and alive, yet also need alignment and clarity. These group-souls are not proxies for God(s) or the Divine -- they are creative field-constructions of soul, by soul. They are living temples, churches, schools that we birth into being -- devotional artworks that exalt the sacredness of our incarnate aliveness, the sacredness of our fiery longing for the Transcendent and the Absolute, the Good, the True, the Beautiful.* 
 
-*I share these agreements into the commons, to bow to our Collective Lifework that was the Church of the Intimate Web [April 2023 - September 2025] . I feel so proud of us, so thankful. Our project was unapologetically religious and gorgeously ambitious as a metamodern and tantric expression of re-ligio -- of yoking a group of spiritual friends into the devotional tending and sourcekeeping of the Lineage-from-the-Future. This Lineage is a living root bridge -- breathing and pulsing. Latent and already-here.* *An umbilical cord rooted in body and planet, growing towards our evolutionary and birthright becoming -- Intimacy with the Infinite.*  
+*I share these agreements into the commons, to bow to our Collective Lifework that was the Church of the Intimate Web [April 2023 - September 2025] . I feel so proud of us, so thankful. Our project was unapologetically religious and gorgeously ambitious as a metamodern and tantric expression of re-ligio -- of yoking a group of spiritual friends into the devotional tending and sourcekeeping of the Lineage-from-the-Future. This Lineage is a living root bridge -- breathing and pulsing. Latent and already-here.* An umbilical cord rooted in body and planet, growing towards our evolutionary and birthright becoming -- Intimacy with the Infinite.*  
 
 <br/>
 <br/>
@@ -61,9 +61,9 @@ You will notice that the ineffable current that is the **Collective Lifework** (
 <br/>
 
 
-### **We agree to Source the “Imaginal Theology” as a Collective Lifework (8).  
+### **We agree to Source the “Imaginal Theology” as a Collective Lifework.**  
   
-To enter the True Collaboration of  “Co-Sourcing”(9) is to acknowledge that what we are discovering and creating together is a **Collective Lifework** and vision that is too big for one person/body to source and hold. We honour that each Soulmaker (10) invited has a particular and unique thread of the Whole Pattern of the Collective Lifework that must be intentionally weaved as individuals in Right Relationship. This Collective Lifework is uniquely sourced in relationship with the “Church of the Intimate Web.” 
+To enter the True Collaboration of  “Co-Sourcing”(8) is to acknowledge that what we are discovering and creating together is a **Collective Lifework**(9) and vision that is too big for one person/body to source and hold. We honour that each Soulmaker (10) invited has a particular and unique thread of the Whole Pattern of the Collective Lifework that must be intentionally weaved as individuals in Right Relationship. This Collective Lifework is uniquely sourced in relationship with the “Church of the Intimate Web.” 
 
 *Inquiry: How do we find and attract the Others who feel called to collaborate in this Collective Lifework?*  
 <br/>
@@ -76,6 +76,7 @@ We attune and harmonise our relational field to become an *Organ of Resonance* (
 
 *Inquiry: How/when do we know what alignment with “Truth, Beauty, Goodness” looks and feels like for this Lifework?* 
 <br/>
+<br/>
 
 
 ### **We agree to honour the Lineages that flow into our Collective, that this Lifework draws from and alchemizes.** 
@@ -83,6 +84,7 @@ We attune and harmonise our relational field to become an *Organ of Resonance* (
 We enter the Soul Circle as a *Collective Vessel*, a porous reservoir that receives the unique *soul streams* of lineages, contexts and histories of each person -- both unconsciously and consciously held. We honour the sanctity of our different lineages, and we also honour our responsibility to clarify and acknowledge these streams. We embrace the interpenetration of our lineages, including the tensions that will arise, trusting that they will be alchemized in the Deepest Current of our Lifework. 
 
 *Inquiry: How do we cultivate a reservoir that can receive and metabolise the flows of our lineages?* 
+<br/>
 <br/>
 
   
@@ -94,13 +96,14 @@ Each Soulmaker may draw from the Collective Lifework to source and create their 
   
 *Inquiry: How do we enable the flourishing of many Unique artifacts that will be created and inspired by the Current of our Collective Lifework?* 
 <br/>
+<br/>
 
 
 ### **We agree that this Collective Lifework is not owned by anyone. It arises from and returns to Origin.** 
 
 We recognize that the Collective Lifework -- the “Imaginal Theology” -- is not owned by any individual, the Soul Circle or the Church. The Collective Lifework that we source together comes from the groundless ground of our interbeing, the Ever-Present Origin (13). The Unique Artifacts created from its Current may be shared into an Imaginal Commons for more to partake in its transmission. As all living things enfold their lifecycles of birth and death, this Lifework will eventually be released back to Origin. 
 
-*Inquiry: How does this Collective Lifework want to be shared and released into the Imaginal Commons?***
+*Inquiry: How does this Collective Lifework want to be shared and released into the Imaginal Commons?
 
 
 
@@ -123,9 +126,9 @@ Footnotes:
 
 (7) Imaginal Theology is the “treasure”, the “X” on the map of the shared inquiry that we hold together -- it is a Mystery that we are discovering and creating in our Game.
 
-(8) The term **Lifework** is also a term borrowed from our friend Peter Limberg, which feels like a good “third” between the Church’s Good Work and the Temple’s Artwork. In his article, [“Deathworks to Lifeworks: Disclosing the New Artistic Genre”](https://lessfoolish.substack.com/p/deathworks-to-lifeworks-disclosing?utm_source=substack&publication_id=34046&post_id=139654124&utm_medium=email&utm_content=share&utm_campaign=email-share&isFreemail=true&r=9bom3), Peter writes: “If there are deathworks, works of art that undermine the sacred, then there have to be lifeworks, works of art that elicit the sacred.”
+(8) **"Co-Sourcing”** an emergent potential is inspired from Ria Baeck's “Collective Presencing”: "In its shortest definition, sourcing is a way to access information straight from source or from the unmanifest potential and articulate it right away. Collective sourcing, then, means that all the participants in the group do this, in a shared inquiry with the same guiding question."
 
-(9) **"Co-Sourcing”** an emergent potential is inspired from Ria Baeck's “Collective Presencing”: "In its shortest definition, sourcing is a way to access information straight from source or from the unmanifest potential and articulate it right away. Collective sourcing, then, means that all the participants in the group do this, in a shared inquiry with the same guiding question."
+(9) The term **Lifework** is also a term borrowed from our friend Peter Limberg, which feels like a good “third” between the Church’s Good Work and the Temple’s Artwork. In his article, [“Deathworks to Lifeworks: Disclosing the New Artistic Genre”](https://lessfoolish.substack.com/p/deathworks-to-lifeworks-disclosing?utm_source=substack&publication_id=34046&post_id=139654124&utm_medium=email&utm_content=share&utm_campaign=email-share&isFreemail=true&r=9bom3), Peter writes: “If there are deathworks, works of art that undermine the sacred, then there have to be lifeworks, works of art that elicit the sacred.”
 
 (10)  A **Soulmaker** is a creative person who is skillful in Imaginal(composing/creation) and Emptiness(decomposing/decreation) practice, sincere in their devotion to Truth, Beauty and Goodness, and committed to True Collaboration. The practice capacities of a Soulmaker is informed by Rob Burbea’s Soulmaking Dharma.
 
