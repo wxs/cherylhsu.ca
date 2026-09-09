@@ -100,16 +100,27 @@ We recognize that the Collective Lifework -- the “Imaginal Theology” -- is n
 
 (1) The **“Soul Circle”** is initiated by Cheryl Hsu as “sourcekeeper”, and held by “the Church” as a Sanctuary of Space.
 (2) **The Church of the Intimate Web”  initiated by Daniel Thorsen as it’s “source”, with the mission to: “open the Eye of Value and actualize The Intimate Web.” You can learn more about it [here](https://publish.obsidian.md/intimateweb/The+Logos+Garden).**
+
 (3) The container details are in the process of co-design, but they will most likely be prototyped as a 6-months of 12-sessions, primarily held virtually, with the potential of an in-person gathering.**
+
 (4) The **Soul Circle** is a collective vessel (a compound entity) made through bodies and souls called into relational space, dedicated to the arts of Collective Soulmaking.
+
 (5) A **Collective Lifework** is a Current (that prefigures and leaves traces through Unique artifacts or Pattern that co-dependently arises from meaning in the space between Unique artifacts. Like constellations in stars, the perspectival agent produces Reality through drawing and making relationships between nodes.
+
 (6)  These **Imaginal Agreements** were written in the ritual container of the Initiation Quest that Cheryl undertook as her Act of Confirmation into the “Church of the Intimate Web.” and also arise out of an on-going research inquiry into [intersubjective creativity](https://www.youtube.com/watch?v=lcK-fu6BtZ0&ab_channel=TheStoa).
+
 (7) Imaginal Theology is the “treasure”, the “X” on the map of the shared inquiry that we hold together -- it is a Mystery that we are discovering and creating in our Game.
+
 (8) The term **Lifework** is also a term borrowed from our friend Peter Limberg, which feels like a good “third” between the Church’s Good Work and the Temple’s Artwork. In his article, [“Deathworks to Lifeworks: Disclosing the New Artistic Genre”](https://lessfoolish.substack.com/p/deathworks-to-lifeworks-disclosing?utm_source=substack&publication_id=34046&post_id=139654124&utm_medium=email&utm_content=share&utm_campaign=email-share&isFreemail=true&r=9bom3), Peter writes: “If there are deathworks, works of art that undermine the sacred, then there have to be lifeworks, works of art that elicit the sacred.”
+
 (9) **"Co-Sourcing”** an emergent potential is inspired from Ria Baeck's “Collective Presencing”: "In its shortest definition, sourcing is a way to access information straight from source or from the unmanifest potential and articulate it right away. Collective sourcing, then, means that all the participants in the group do this, in a shared inquiry with the same guiding question."
+
 (10)  A **Soulmaker** is a creative person who is skillful in Imaginal(composing/creation) and Emptiness(decomposing/decreation) practice, sincere in their devotion to Truth, Beauty and Goodness, and committed to True Collaboration. The practice capacities of a Soulmaker is informed by Rob Burbea’s Soulmaking Dharma.
+
 (11)  The **Organ of Resonance** (or Instrument of Perception) is an embodied apparatus of subtle sensing; imagine it like a musical instrument that can be intentionally tuned to the frequencies of Truth, Beauty and Goodness, through resonant feedback loops of clarified information.
+
 (12)  The Unique Artifact may “belong to” her Creator but is not “owned by” the Creator. A relationship of belonging arises from the flows of love and care. There are considerations of creative licence and copyright that are relevant here, but the intention is to have these temporal protocols flow in right relationship from/with these Imaginal Agreements.
+
 (13) This is a term from Jean Gebser, a philosopher of consciousness who wrote in his book The Ever-Present Origin: “In creativity, origin is present.”
 
 ![](/images/remembering.png)
