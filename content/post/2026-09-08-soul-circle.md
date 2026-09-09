@@ -3,9 +3,9 @@ title: Imaginal Agreements for the Soul Circle
 date: 2026-09-08
 tags:
   - phd
-  - guild
+  - church
   - collectivesoulmaking
-  - sourcekeeping
+  - intimacy
 summary: '"Sourced from this Middle -- expanding and contracting in the erotic pulsations of aliveness -- were the "Imaginal Agreement of the Soul Circle" . A set of agreements for Collective Soulmaking -- dutifully scribed. The blueprint less like a map and more like the improvisational protocols or "scores" of rhythm and synchronicity, that move souls and cells into intimate harmonization."'
 draft:
 ---
