@@ -11,7 +11,7 @@ draft:
 ---
 <br/>
 
-*These Imaginal Agreements for the "Soul Circle" were sourced out a [Confirmation Quest ](https://publish.obsidian.md/logos-garden/Church+Systems+and+Practices/Confirmation+and+Membership/What+is+Confirmation%3F)through the [Church of the Intimate Web](https://publish.obsidian.md/logos-garden/The+Logos+Garden). The Church of the Intimate Web was a two-year religious art project, sourced by my friend Daniel Thorson and co-created by a small group of spiritual friends. 
+*These Imaginal Agreements for the "Soul Circle" were sourced out a [Confirmation Quest ](https://publish.obsidian.md/logos-garden/Church+Systems+and+Practices/Confirmation+and+Membership/What+is+Confirmation%3F)through the [Church of the Intimate Web](https://publish.obsidian.md/logos-garden/The+Logos+Garden). The Church of the Intimate Web was a two-year religious art project, sourced by my friend Daniel Thorson and co-created by a small group of spiritual friends.* 
 
 *During a gathering at Bonnitta Roy's farm in November 2023, I entered a six-month alchemical vessel of soulmaking, to cook and clarify the desires that live in this body. I confessed hidden pathologies of love -- these secret creatures of karmic knotting that live in the subterranean depths of inheritance and wounding in the cultural body. Through a relentless commitment to revelation and willing disclosure, a 30,000 word ritual artifact was produced and shared with my spiritual friends, titled: **Reconciliation of (W)holes (and the Three Gates of Intimacy**) on April 2024. The act of writing is a process of alchemical purification -- allows one to gently unspool and untangle the red threads of clinging that pinches psyche too closely together. The release and loosening of what feels embarrassing to the ego begins to relaxes the wisdom body... revealing something still and empty at the heart of the Tin temple. A white-black (w)hole. **The Middle.*** 
 
@@ -26,8 +26,7 @@ draft:
 
 ***
 
-<br/>
-<br/>
+
 ![](/images/intimateweb.png)
 
 
@@ -54,49 +53,62 @@ The Soul Circle will be bound in through space-and-time constrained commitments.
 
 You will notice that the ineffable current that is the **Collective Lifework** (5), in contrast to an individual’s lifework, is cloaked with a plurality of resonance in song, water and streams, threads and patterns. Please consider the words of these agreements in Good Faith (6) as a *work-in-process*, but stated with conviction, gesturing towards the sacred territory of that which is *non-negotiable*.
 
+<br/>
+<br/>
+
 
 ***
 <br/>
+
+
 ### **We agree to Source the “Imaginal Theology” as a Collective Lifework (8).  
   
 To enter the True Collaboration of  “Co-Sourcing”(9) is to acknowledge that what we are discovering and creating together is a **Collective Lifework** and vision that is too big for one person/body to source and hold. We honour that each Soulmaker (10) invited has a particular and unique thread of the Whole Pattern of the Collective Lifework that must be intentionally weaved as individuals in Right Relationship. This Collective Lifework is uniquely sourced in relationship with the “Church of the Intimate Web.” 
 
 *Inquiry: How do we find and attract the Others who feel called to collaborate in this Collective Lifework?*  
-
 <br/>
+
+
 ### **We agree that this Collective Lifework is created in devotion to Truth, Beauty, Goodness -- and Mystery.** 
 
 
 We attune and harmonise our relational field to become an *Organ of Resonance* (11) for Truth, Beauty and Goodness. We practise and train this Instrument of Perception to guide the *Creative Eros* (the energy generated in the relational field of potential) to be in alignment with the Collective Lifework that wants to be created. We weave the relational harmony from which the Collective Lifework arises, and recognize its Song in our bodies. We make space for *Mystery*, the Source from which all energy arises and all energy returns. 
 
 *Inquiry: How/when do we know what alignment with “Truth, Beauty, Goodness” looks and feels like for this Lifework?* 
+<br/>
 
-  <br/>
+
 ### **We agree to honour the Lineages that flow into our Collective, that this Lifework draws from and alchemizes.** 
 
 We enter the Soul Circle as a *Collective Vessel*, a porous reservoir that receives the unique *soul streams* of lineages, contexts and histories of each person -- both unconsciously and consciously held. We honour the sanctity of our different lineages, and we also honour our responsibility to clarify and acknowledge these streams. We embrace the interpenetration of our lineages, including the tensions that will arise, trusting that they will be alchemized in the Deepest Current of our Lifework. 
 
 *Inquiry: How do we cultivate a reservoir that can receive and metabolise the flows of our lineages?* 
+<br/>
 
   
-<br/>
+
 ### **We agree that the Unique Artifacts created by Soulmakers belong to them. Each Unique Artifact is a portal to another Lifework in the Imaginal Commons.**
 
 Each Soulmaker may draw from the Collective Lifework to source and create their own Unique Artifacts -- whether it is a picture, a song, the seeding of another Good Work. Each Unique Artifacts *belongs to* their Creator (12). We recognize that the Collective Lifework is not rivalrous with or discontinuous with these Unique Artifacts -- they are mutually co-arising. Each Unique Artifact is a nodal portal to another Lifework, connecting and actualizing the rhizomatic relations of the Sacred Network. 
 
   
 *Inquiry: How do we enable the flourishing of many Unique artifacts that will be created and inspired by the Current of our Collective Lifework?* 
+<br/>
 
-  <br/>
+
 ### **We agree that this Collective Lifework is not owned by anyone. It arises from and returns to Origin.** 
 
 We recognize that the Collective Lifework -- the “Imaginal Theology” -- is not owned by any individual, the Soul Circle or the Church. The Collective Lifework that we source together comes from the groundless ground of our interbeing, the Ever-Present Origin (13). The Unique Artifacts created from its Current may be shared into an Imaginal Commons for more to partake in its transmission. As all living things enfold their lifecycles of birth and death, this Lifework will eventually be released back to Origin. 
 
 *Inquiry: How does this Collective Lifework want to be shared and released into the Imaginal Commons?***
+
+
+
+<br/>
 <br/>
 
 --- 
-
+Footnotes: 
 
 (1) The **“Soul Circle”** is initiated by Cheryl Hsu as “sourcekeeper”, and held by “the Church” as a Sanctuary of Space.
 (2) **The Church of the Intimate Web”  initiated by Daniel Thorsen as it’s “source”, with the mission to: “open the Eye of Value and actualize The Intimate Web.” You can learn more about it [here](https://publish.obsidian.md/intimateweb/The+Logos+Garden).**
