@@ -29,7 +29,9 @@ draft:
 <br/>
 <br/>
 ![](/images/intimateweb.png)
-# **The Soul Circle  of the “Intimate Web”
+
+
+## Soul Circle of the “Intimate Web”
 
 <br/>
 
@@ -54,14 +56,14 @@ You will notice that the ineffable current that is the **Collective Lifework** (
 
 
 ***
-
+<br/>
 ### **We agree to Source the “Imaginal Theology” as a Collective Lifework (8).  
   
 To enter the True Collaboration of  “Co-Sourcing”(9) is to acknowledge that what we are discovering and creating together is a **Collective Lifework** and vision that is too big for one person/body to source and hold. We honour that each Soulmaker (10) invited has a particular and unique thread of the Whole Pattern of the Collective Lifework that must be intentionally weaved as individuals in Right Relationship. This Collective Lifework is uniquely sourced in relationship with the “Church of the Intimate Web.” 
 
 *Inquiry: How do we find and attract the Others who feel called to collaborate in this Collective Lifework?*  
 
-
+<br/>
 ### **We agree that this Collective Lifework is created in devotion to Truth, Beauty, Goodness -- and Mystery.** 
 
 
@@ -69,7 +71,7 @@ We attune and harmonise our relational field to become an *Organ of Resonance* (
 
 *Inquiry: How/when do we know what alignment with “Truth, Beauty, Goodness” looks and feels like for this Lifework?* 
 
-  
+  <br/>
 ### **We agree to honour the Lineages that flow into our Collective, that this Lifework draws from and alchemizes.** 
 
 We enter the Soul Circle as a *Collective Vessel*, a porous reservoir that receives the unique *soul streams* of lineages, contexts and histories of each person -- both unconsciously and consciously held. We honour the sanctity of our different lineages, and we also honour our responsibility to clarify and acknowledge these streams. We embrace the interpenetration of our lineages, including the tensions that will arise, trusting that they will be alchemized in the Deepest Current of our Lifework. 
@@ -77,7 +79,7 @@ We enter the Soul Circle as a *Collective Vessel*, a porous reservoir that recei
 *Inquiry: How do we cultivate a reservoir that can receive and metabolise the flows of our lineages?* 
 
   
-
+<br/>
 ### **We agree that the Unique Artifacts created by Soulmakers belong to them. Each Unique Artifact is a portal to another Lifework in the Imaginal Commons.**
 
 Each Soulmaker may draw from the Collective Lifework to source and create their own Unique Artifacts -- whether it is a picture, a song, the seeding of another Good Work. Each Unique Artifacts *belongs to* their Creator (12). We recognize that the Collective Lifework is not rivalrous with or discontinuous with these Unique Artifacts -- they are mutually co-arising. Each Unique Artifact is a nodal portal to another Lifework, connecting and actualizing the rhizomatic relations of the Sacred Network. 
@@ -85,13 +87,13 @@ Each Soulmaker may draw from the Collective Lifework to source and create their 
   
 *Inquiry: How do we enable the flourishing of many Unique artifacts that will be created and inspired by the Current of our Collective Lifework?* 
 
-  
+  <br/>
 ### **We agree that this Collective Lifework is not owned by anyone. It arises from and returns to Origin.** 
 
 We recognize that the Collective Lifework -- the “Imaginal Theology” -- is not owned by any individual, the Soul Circle or the Church. The Collective Lifework that we source together comes from the groundless ground of our interbeing, the Ever-Present Origin (13). The Unique Artifacts created from its Current may be shared into an Imaginal Commons for more to partake in its transmission. As all living things enfold their lifecycles of birth and death, this Lifework will eventually be released back to Origin. 
 
 *Inquiry: How does this Collective Lifework want to be shared and released into the Imaginal Commons?***
-
+<br/>
 
 --- 
 
