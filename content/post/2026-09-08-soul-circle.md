@@ -103,7 +103,7 @@ Each Soulmaker may draw from the Collective Lifework to source and create their 
 
 We recognize that the Collective Lifework -- the “Imaginal Theology” -- is not owned by any individual, the Soul Circle or the Church. The Collective Lifework that we source together comes from the groundless ground of our interbeing, the Ever-Present Origin (13). The Unique Artifacts created from its Current may be shared into an Imaginal Commons for more to partake in its transmission. As all living things enfold their lifecycles of birth and death, this Lifework will eventually be released back to Origin. 
 
-*Inquiry: How does this Collective Lifework want to be shared and released into the Imaginal Commons?
+*Inquiry: How does this Collective Lifework want to be shared and released into the Imaginal Commons?*
 
 
 
@@ -141,3 +141,4 @@ Footnotes:
 
 ![](/images/remembering.png)
 
+![](/images/bodyofthechurch.png)
