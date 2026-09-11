@@ -7,7 +7,7 @@ date: 2020-11-06
 
 Cheryl is a **transversal designer,** braiding living root bridges of wholeness and intimacy in the time between worlds. (see: [Imaginal Transitions](https://weallcanada.org/wp-content/uploads/2022/10/Toronto-Imaginal-Transitions-v1.0.pdf), [Thinking Transversally](https://youtu.be/fnpDP71uI9A?si=Ss8aVuVKzouH3afU))
 
-Cheryl is an **oracular futurist**, body as sensing organ and vessel for prophetic futures (see: [Oracular Bodies](https://transversal.design/oracular2025.pdf)) 
+Cheryl is an **oracular futurist**, inviting the body-temple as a sensing organ for futuring (see: [Oracular Bodies](https://transversal.design/oracular2025.pdf)) 
 
 Cheryl is a **soulmaker** of the Imaginal, transmuting desire (*eros*) into art. (see: [Alchemical Soul-making](https://youtu.be/lcK-fu6BtZ0?si=LwRs9nWOs_rYadRy), [imaginal (w)holes](https://youtu.be/pzhZ1_dlXow)) 
 
